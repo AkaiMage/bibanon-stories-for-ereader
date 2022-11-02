@@ -2683,7 +2683,7 @@ Well, consider this: If most people just read on the wiki rather than contributi
 > _I know you've been looking into information as far as adoption/legal guardianship is concerned, but aren't you getting a little ahead of yourself? I mean, it may pay to be informed, even prepared, but it seems a little on the fast side._  
 > _The fact that Amputee-tan has warmed to you is a positive sign, but it seems that concerns over guardianship should first merit a serious discussion on the matter with her. And given the current stage of your relationship, it may not be appropriate to broach the subject yet._  
 > _Essentially, I'm somewhat worried that your intent, which by your account is honorable, may be cast badly by overeagerness._  
-> _ I may of course be reading into the matter incorrectly. At any rate, I do wish both you luck in the long term, whatever form it may take._
+> _I may of course be reading into the matter incorrectly. At any rate, I do wish both you luck in the long term, whatever form it may take._
 
 I don't see anything wrong with being prepared. I'll admit, I still haven't come to a final decision on whether I'm ready or able to adopt and care for her myself...as I've said before, time and time again, I'm not a saint, I'm just, you know, a guy. But even so, gathering all the information I can, on both the process and how eligible to participate in it I'd be, seems like a good thing to do...must be my boy scout background acting up.
 
@@ -2715,9 +2715,8 @@ Ha, I'll come right out and admit that it was the inspiration for my origami pre
 
 ### 19733033  ###
 
-> _re: "What's your general work schedule (Days, Hours, etc...)? How often do you see her, and for how long? _  
-> _Also, when not engaged in whatever activity (EBA, Origami, etc...) what do you two do? What do you converse about?" _  
-
+> _re: "What's your general work schedule (Days, Hours, etc...)? How often do you see her, and for how long?_
+> _Also, when not engaged in whatever activity (EBA, Origami, etc...) what do you two do? What do you converse about?"_
 I generally work six days a week, the 11pm-7am night shift. I have sunday nights off to catch up on sleep and do whatever I like to do, though there's rarely all that much to do on sunday nights, out on the town. She's almost always still awake when I come on duty these days, as she's admitted that she stays up to see me, and because she likes having some time to herself where she isn't surrounded by the moaning almost-dead and such (not her words, exactly). As I've mentioned before, I'm considering talking to her social worker and my bosses about volunteering some of my free time during the day some days to simply spending some time with her outside the nursing relationship, sort of like a 'big brothers/big sisters' relationship for single-parent kids. Still working up the nerve for that proposal.
 
 I generally let her talk about her day, vent about things that've bothered her, talk about the people around her and so on and so forth...acting as a sounding board, mostly, someone to listen to her without writing it up in her file and such, you know? She occasionally asks me about similar things, everyday events, stuff I do, what I think about certain things, etc...it's nice, really, though she is still just a kid, so they aren't the deepest conversations I could have, but they're good ones, and I really don't mind any of them in the least. I'm just happy she's opened up enough to make it a possibility in the first place.
@@ -2788,8 +2787,7 @@ As for the DS, she's still just playing stylus-control-based games...she uses he
 
 ### 19819146 ###
 
-> _Well, I must admit, that this guy has a lot of memories to back up his hate. Along with altzheimer, such things surface and accumulate to abnormal levels, so he snaps and propably WILL snap again. Please, keep her out of his reach for a while. ALso - please do talk to her about the incident and hear how she saw it & comment your way of seing it. It'll he;lp her get the tension out -> less tenstion => less nightmares. :3" _  
-
+> _Well, I must admit, that this guy has a lot of memories to back up his hate. Along with altzheimer, such things surface and accumulate to abnormal levels, so he snaps and propably WILL snap again. Please, keep her out of his reach for a while. ALso - please do talk to her about the incident and hear how she saw it & comment your way of seing it. It'll he;lp her get the tension out -> less tenstion => less nightmares. :3"_
 Well yeah, I can understand his inclinations towards anti-japanese sentiment, as it was pretty universal among people his age during wartime back then...and pretty universally accepted as 'proper', too. So I'm cutting him more slack than I would, say, a neo-nazi, or a KKK member or something (lol, /b/, nigras, shoop da whoop, etc). Still, she's a *seven year old child*. Who isn't even fully Japanese, not that that should really matter at all. Moderate Dementia or no, I can't just write it off entirely. Though I'm not going to be poisoning or roughing him up, either, because a) that's the opposite of my job, and why I got into this job in the first place, and b) he wouldn't even understand why it was happening in the first place, so it'd be pointless. I've been trying not to think about it too much, since it pisses me off to do so, good feelings about her kicking ass aside.
 
 ### 19819203 ###
@@ -2801,9 +2799,8 @@ Mm, I've thought about it...but I'm not a very craft-oriented person. I mean, I'
 
 ### 19819566 ###
 
-> _Have you considered buying her one of those gba>SD card carts and loading up some movies for her? You could discuss the movies. _  
-> _Protip: Avoid amputation films like Kill Bill. _  
-
+> _Have you considered buying her one of those gba>SD card carts and loading up some movies for her? You could discuss the movies._
+> _Protip: Avoid amputation films like Kill Bill._
 Hm, I never really checked them out before, as I haven't ever really needed to use my DS for such things. What's their capabilities and general costs?
 
 (Also, thanks for the protip, saved me from an embarassing presentation of Blade!)
@@ -2825,7 +2822,7 @@ I'm sorry, but as I've said in the past, I just can't risk a picture of her in h
 
 ### 19820064 ###
 
-> _Check him out for altzheimer. "Moderate dementia" sounds funny for the described actions compared to patients background. Altzheimer surfaces hard written memories of highly intensive emotional fluxes from early days. Thus, his snapping about at "japanese girl" with Pearl Harbour mentioned, sound more like the altzheimer diagnosed patients I have met. And - as altzheimer also intensifies some reactions that center on the mentioned events, it modulates the perception of reality so to speak, so he actually feels closer to his memories then the curent situation. Summing up - that's not anything close to KKK/neonazis, he's propably closer to the emotional memories of his budies dying from wartime events, then natural perception of things they are now. Just clarifing, since I had been forcibly in quite the altzheimer-related subject for last several years. _  
+> _Check him out for altzheimer. "Moderate dementia" sounds funny for the described actions compared to patients background. Altzheimer surfaces hard written memories of highly intensive emotional fluxes from early days. Thus, his snapping about at "japanese girl" with Pearl Harbour mentioned, sound more like the altzheimer diagnosed patients I have met. And - as altzheimer also intensifies some reactions that center on the mentioned events, it modulates the perception of reality so to speak, so he actually feels closer to his memories then the curent situation. Summing up - that's not anything close to KKK/neonazis, he's propably closer to the emotional memories of his budies dying from wartime events, then natural perception of things they are now. Just clarifing, since I had been forcibly in quite the altzheimer-related subject for last several years._
 > _Just try o act out a sign for medical staff for prolonged altzheimer-related observation. If it's positive, several medications might make the guy a little less inclined towards the past and thus - less agressive towards your one armed ball of cuteness. And keep out of poisining the bastard, lol._
 
 Er, right, it's just that I can't recall his exact diagnosis, off-hand, since he's not in my wing, and I thus don't have access to his file...I just went with 'dementia' more as a layman's catch-all term for 'old person crazy' rather than going out on a limb with a specific altzheimer's declaration, since I'm not sure about it. But yes, his behaviour has struck me as being more inclined that way based on some of my other patients, was just 'playing it safe'. Of course, I'm not involved in his care, so I can't make any recommendations in that regard, and the other nurses said he's being looked over more carefully after these incidents, aside from keeping him away from her, so...not a lot I can do, really.
@@ -2947,8 +2944,8 @@ of...brutal...honesty, and I might've just been kicked out or tracked up, 4chan'
 ### 19828944 ###
 
 > _Hey Nurse-kun, I've got an idea, if you're up for it._  
-> _Perhaps for the purpose of preventing future "hoax" posts by the anonii's out there looking to troll you, we could establish a way to determine that you are truely Nurse-kun. ( Beyond post style ) _  
-> _I think a picture of a distinctive object, somthing as unique as you can make it, with a post-it saying somthing like "Hey Guys. Nurse-kun here." would suffice. _  
+> _Perhaps for the purpose of preventing future "hoax" posts by the anonii's out there looking to troll you, we could establish a way to determine that you are truely Nurse-kun. ( Beyond post style )_
+> _I think a picture of a distinctive object, somthing as unique as you can make it, with a post-it saying somthing like "Hey Guys. Nurse-kun here." would suffice._
 > _Then in future posts you can present pics of the same distinctive object with different message stickies._
 
 Hm, I'll consider this. I'm actually looking across the room at something that would suffice right now...
@@ -3000,7 +2997,7 @@ Less seriously, to follow up on the more serious point: If your cat could read a
 
 ### 19830651 ###
 
-> _So Nurse-kun, another question, and this time it's in complete digression from the Amputee-chan topic. _  
+> _So Nurse-kun, another question, and this time it's in complete digression from the Amputee-chan topic._
 > _How'd you come to be a /b/rother?_
 
 Uh, it's not a very interesting story. A friend of mine linked some pictures from 4chan, I checked them out, looked into the whole 4chan thing, wound up in /b/, found it amusing, kept checking back. The End.
@@ -4298,7 +4295,7 @@ A zoo could work out. Guys I do appreciate the effort you all put into analyzing
 
 ### 03/26/07 (Mon) 21:19:46 No.23027276  ###
 
->  _re: "real nurse-kun makes a lot of small posts to answer questions. _  
+>  _re: "real nurse-kun makes a lot of small posts to answer questions._
 >  _thread is a fake!"_
 
 You all seem to a lot more debating than asking questions, but I'll be sticking around if you have any.
@@ -5065,7 +5062,7 @@ Pool(wa)'s closed, bitches. Due to VIO-LEN-CE.
 
 ### 24191038  ###
 
-> _ That seems like it would be a good idea, Aikido is more about falls, and not getting hurt then it is about hurting others._
+> _That seems like it would be a good idea, Aikido is more about falls, and not getting hurt then it is about hurting others._
 
 Really? I don't know (or pretend to know) much about martial arts, took a karate class for, like, two months back when I was in junior high, but that's about it. Would aikido be a good idea? I did some quick web-searches for local schools after the suggestion, though I suppose I don't really know enough to have made sense of what I found. Lots of them focused on being very kid-friendly, and non-fighting centered and such, which seemed nice, but most martial arts schools I've seen said stuff like that, really. And considering some of the dumbasses I've seen on the internets when martial arts come up, most of the ones that actually do it probably going to schools that also say the same thing, I had to wonder...
 
@@ -5393,7 +5390,7 @@ And...well, that's about all the salient details of that. I hesitated in telling
 
 ### 25548373  ###
 
-\>\>25548141 _(Ouendan 2)_
+`>>25548141` _(Ouendan 2)_
 
 Already ahead of you there. Have two copies preordered. But thanks for the thought!
 
@@ -5419,7 +5416,7 @@ I'm sure he'd love to see you if she told him! Pediatricians are very compassion
 
 ### 5547275  ###
 
-> _Dear Nurse-Kun, _ _I am incurring enormous bills from keeping my father in an assisted living facility. I honestly had only planned on him being alive a short while longer, but he was a tough old man who served in the 5th Ranger Battalion in Europe and was a decorated and respected war hero. My wife has been nagging me to get a bigger house and is on the verge of leaving me if I don't. I really need him to die and have taken to switching out his Urocit-K, Norpace, and Razadyne with over the counter supplements, painkillers, and antihistamines. For awhile I even replaced his insulin with dextrose I purchased at a farm supply store. This seems to have done VERY little, He's remained sharp, active, and hasn't complained or gotten sick at all. His doctor did however raise questions about his high blood sugar and the ineffectiveness of his "insulin", which prompted me to switch it back before someone noticed. He's so tough! Please Nurse-Kun save my marriage for my little boy's sake. How do I kill dad without anyone finding out? _  
+> _Dear Nurse-Kun, _ _I am incurring enormous bills from keeping my father in an assisted living facility. I honestly had only planned on him being alive a short while longer, but he was a tough old man who served in the 5th Ranger Battalion in Europe and was a decorated and respected war hero. My wife has been nagging me to get a bigger house and is on the verge of leaving me if I don't. I really need him to die and have taken to switching out his Urocit-K, Norpace, and Razadyne with over the counter supplements, painkillers, and antihistamines. For awhile I even replaced his insulin with dextrose I purchased at a farm supply store. This seems to have done VERY little, He's remained sharp, active, and hasn't complained or gotten sick at all. His doctor did however raise questions about his high blood sugar and the ineffectiveness of his "insulin", which prompted me to switch it back before someone noticed. He's so tough! Please Nurse-Kun save my marriage for my little boy's sake. How do I kill dad without anyone finding out?_
 > _Anonymous_
 
 You can't. He's made a pact with Nurgle, and will be there to laugh over your pathetic weakness while raising your son to be the real man you couldn't be for a long time to come.
@@ -5456,8 +5453,7 @@ Well, I have pictures, but they're not getting onto /b/...
 
 ### 25548010  ###
 
-> _if amputee-chan wasn't cute and pretty but instead deformed and horribly ugly-looking, or old, do you think you'd even give her a passing thought? _  
-
+> _if amputee-chan wasn't cute and pretty but instead deformed and horribly ugly-looking, or old, do you think you'd even give her a passing thought?_
 I like to think I would. But she isn't. So I can't really say for certain, can I? I make no attempts to paint myself some sort of saint, either to myself or to others...
 
 ### 25548094  ###
@@ -5586,7 +5582,7 @@ I'm not sure. Why do we have Caturday? Why do we not see more Yotsuba porn? It i
 
 ### 25551977  ###
 
->  :: I love Nurse-kun threads. What really draws me into them is the fact that it has the "ideal reality" aspect that makes many tales great. The characters seem to say the right things at the right time, as if it were out of some sort of novel; however, the emotions of the characters are very real, so it doesn't have the sort of contrived, cliche effect that such dialogue would have in many Hollywood movies today. I'm not accusing Nurse-kun of having made up the story, instead, this seems to be a testament to his skill as a storyteller. Because of this, I imagine Nurse-kun to be a very charismatic person face-to-face. Anyone else get this impression?_ _  
+>  :: I love Nurse-kun threads. What really draws me into them is the fact that it has the "ideal reality" aspect that makes many tales great. The characters seem to say the right things at the right time, as if it were out of some sort of novel; however, the emotions of the characters are very real, so it doesn't have the sort of contrived, cliche effect that such dialogue would have in many Hollywood movies today. I'm not accusing Nurse-kun of having made up the story, instead, this seems to be a testament to his skill as a storyteller. Because of this, I imagine Nurse-kun to be a very charismatic person face-to-face. Anyone else get this impression?__
 >  _No, I get the impression that he's deliberately manipulating the facts of the story in order to make himself seem better than he really is. If you can't see that then you've been drawn in by his manipulative bullshit._
 
 Well, I don't think I'm doing so, personally...I mean, I'm not perfect, but I don't go around kicking kittens and mugging nuns, either. I don't abuse my patients, I don't act like a dick with my coworkers, I'm not stealing my sister's car.
@@ -5672,7 +5668,7 @@ But Nabokov is amazing, so good taste there, anonymous.
 ### 25570533  ###
 
 >  _Okay, Nurse-kun, I know this is fucking old. I'm the guy reading the archives. But I felt I should add this:_
-> >  Would you be interested in a girl/woman missing three limbs and an eye, even if she used her arm prosthesis really well, covered up her leg prosthetics with stockings or something and was good enough with them to walk or even run almost normally, was good enough with makeup to cover the scar over her eye...? Excluding 'god stumps maek me hard' answers from the sickos out there, asking the non-fetishests here...would you be romantically interested in someone like her, with a great body (that's still intact) and a more or less healed psyche and a fascinating mind? And not just romantically, but sexually, as well?_ _  
+> >  Would you be interested in a girl/woman missing three limbs and an eye, even if she used her arm prosthesis really well, covered up her leg prosthetics with stockings or something and was good enough with them to walk or even run almost normally, was good enough with makeup to cover the scar over her eye...? Excluding 'god stumps maek me hard' answers from the sickos out there, asking the non-fetishests here...would you be romantically interested in someone like her, with a great body (that's still intact) and a more or less healed psyche and a fascinating mind? And not just romantically, but sexually, as well?__
 >  _That's from the archives. I just thought I'd mention that I semi-dated a girl in highschool that had a dead arm... I don't know the medical term, but she couldn't move it by itself. Suffice to say, it didn't cause any relationship problems or anything of the sort. So there certainly is hope._  
 >  _Sorry, I'll shut up now._
 
@@ -5743,7 +5739,7 @@ MAKE ME.
 
 > _Need some help for my fapping. Do her prosthetics resemble dolljoints at all?_
 
-See \>\>25548624
+See `>>25548624`
 
 Her legs don't, particularly, since they don't have cosmetic shells, but with them, they would, somewhat.
 
@@ -5797,7 +5793,7 @@ Well, it was just a theoretical situation, of course. They'd probably get drunk 
 
 ### 25574403  ###
 
->  :: question: why do you post on /b/ at all when you could be posting somewhere where you actually get constructive comments?_ _  
+>  :: question: why do you post on /b/ at all when you could be posting somewhere where you actually get constructive comments?__
 >  _on /b/ people won't log your ip address and call the cops_
 
 Pretty much, bad as that might sound.
@@ -5815,7 +5811,7 @@ MATH IS HARD. LET'S GO SHOPPING!
 
 ### 25574523  ###
 
-\>\>25574459
+`>>25574459`
 
 Or was that Time? God, I'm retarded. His book, anyway.
 
@@ -6049,7 +6045,7 @@ I am a man of many layers, much like delicious cake.
 
 ### 25682850  ###
 
-> _ 'Sup, Nurse-kun._  
+> _'Sup, Nurse-kun._  
 > _'Read the story on wikichan, and I found myself designing leg prosthetics in my head the other day. Nothing that's going to make me rich, though._
 
 Well, I'm sure the industry could always use another mind, y'know. Even one not at work on it full time. Who knows? It could at least make for amusing sci-fi-cybernetics designs or something, at least.
@@ -6059,7 +6055,7 @@ Well, I'm sure the industry could always use another mind, y'know. Even one not 
 
 ### 25683189  ###
 
-> Sure thing, But I'll be honest. From my perspective, as hard as our kids over here are to deal with sometimes, what you're doing and what you've already done has probably been a hundred times harder than anything I've had to put up with so far. _  
+> Sure thing, But I'll be honest. From my perspective, as hard as our kids over here are to deal with sometimes, what you're doing and what you've already done has probably been a hundred times harder than anything I've had to put up with so far._
 > _'So I'm wishing you the best of luck, and i hope everything works out good for you and her._
 
 Try not to discount your own achievements. An older colleague of mine gave me that advice when I was just starting out, and said that those of us in the professional care provider industry that burn out often forget about it. You're welcome in any of my threads, any time.
@@ -6108,8 +6104,8 @@ What would you define as 'bigger things', buddy?
 ### 25683915  ###
 
 > _Sup Nurse-kun. Tonight I went for a picnic by myself to see the flooded river before it finally goes down. There's nothing quite like eating tasty tasty food like egg salad sandwiches and Jamaican lemonade, while sitting on the space where the sidewalk disappears into the river._  
-> _'Then I got home to the dorm and there was a fire alarm so I'm still awake >_< _  
-> _'Nothing actually to add to this thread other than "You rock!" ^_^ I'm a cyberpunk writer, so stories about people with missing pieces fascinate me._ Maybe you should team up with \>\> 25683628
+> _'Then I got home to the dorm and there was a fire alarm so I'm still awake >_<_
+> _'Nothing actually to add to this thread other than "You rock!" ^_^ I'm a cyberpunk writer, so stories about people with missing pieces fascinate me._ Maybe you should team up with `>>25683628`
 
 and write the next great cyberpunk novel together, he can design the shiny bits, you can provide the washed out dystopian urban blight of the setting. Might I suggest a hard-bitten but still human due to the influence of a stranger that extended a hand young blonde half-Japanese woman with a few cybernetic limbs and an eye-laser as the protagonist? The Japanese are still cool in cyberpunk, despite the fall of their economic zeitgeist, right?
 
@@ -6274,7 +6270,7 @@ Cocks indeed, my good sir! Pip pip and cheerio!
 
 ### 25688386  ###
 
-\>\> 25688254
+`>>25688254`
 
 > _When Ebola is in town!_  
 > _'But seriously, I've been following this saga for awhile now. You go above and beyond the call of duty, good sir._  
@@ -6312,7 +6308,7 @@ Ha ha! Horrible me.
 
 ## 25688831  ##
 
-\>\>25688700 (responding to bondage pic of [tomo](/tomo) from Azumanga Daioh)
+`>>25688700` (responding to bondage pic of [tomo](/tomo) from Azumanga Daioh)
 
 I dunno, man, she seems like the type to be way too wired and twitchy in bed...and I'd never be sure if she'd somehow be seized by the urge to donkey punch ME when I least expect it.
 
@@ -6321,7 +6317,7 @@ I dunno, man, she seems like the type to be way too wired and twitchy in bed...a
 
 ### 25688820  ###
 
-\>\> 25688766
+`>>25688766`
 > _you lost me_
 
 Don't mind me, that was just rambling. Lack of sleep, general crappy feelingness from multiple sustained puking, dehydration (despite putting in my own IV with a saline drip, I've got skills, oh yes, but only picked up the two bags on the way home), and hunger combine to make nurse-kun something something...
@@ -6360,7 +6356,7 @@ Not much out there that I'm aware of, unless you're interested in the agents and
 
 ## 25690005  ##
 
-\>\> 25689526
+`>>25689526`
 
 Anyone? At all? Searching firefox extensions, my addled brain isn't finding much of use...and my buddy that rapidshared the last one (and wrote those action-packed imposter posts, being the far more talented than I writer that he is) is currently asleep...
 
@@ -6369,7 +6365,7 @@ Anyone? At all? Searching firefox extensions, my addled brain isn't finding much
 
 ### 25690227  ###
 
-\>\> 25690005
+`>>25690005`
 
 > _Maybe I need to lurk more, but save page as perhaps?_ mm, trying dthemall, I'm really not a terribly sophisticated web user, all things considered...nurse, not a computer scientist, etc, etc. That, and the low IQ, y'know.
 
@@ -6385,7 +6381,7 @@ Anyone? At all? Searching firefox extensions, my addled brain isn't finding much
 
 ## 25690855  ##
 
-\>\> 25690288
+`>>25690288`
 
 Woo, it worked! I learn something new! Level up! Now I am HEAD NURSE! *spins slowly and gracefully as scrubs fade into sparkles and nude-transformations into classical Cap White Old-School style white nurse's uniform in dress form, with white cap, thigh-high white stockings, and heels, included*
 
@@ -6426,13 +6422,13 @@ If any game needs a RE 1 on GC remake, it's SH. I can't be the only one to think
 
 ## 25691484  ##
 
-\>\> 25691257
+`>>25691257`
 
 (In b4 not being as sexy as Lisa)
 
 ## 25691527  ##
 
-\>\> 25691484
+`>>25691484`
 
 (Also in b4 being sexier than Lisa, you sick freaks)
 
@@ -6441,7 +6437,7 @@ If any game needs a RE 1 on GC remake, it's SH. I can't be the only one to think
 
 ### 25691379  ###
 
-\>\> 25691213
+`>>25691213`
 
 > _Haha, that's it, I'm definitely drawing amputee-tan using sexy beam._  
 > _'It has to be done._
@@ -6453,7 +6449,7 @@ If any game needs a RE 1 on GC remake, it's SH. I can't be the only one to think
 
 ### 25691765  ###
 
-\>\> 25691320
+`>>25691320`
 
 > _The last area makes it worth it._  
 > _'It's the only part of that game that I liked, actually._  
@@ -6513,7 +6509,7 @@ Instead, we got some sort of x-treme wiccans and witch burnings and...man what? 
 
 ### 25693276  ###
 
-\>\> 25692889
+`>>25692889`
 
 > _Heh, that's good._  
 > _'Well, finding out that you're a Silent Hill fan pretty much made my day._  
@@ -6525,15 +6521,15 @@ Ah, there's the picture I hadn't posted yet! Ah, well. It's a great one, was my 
 
 ## 25693757  ##
 
-\>\> 25692889
+`>>25692889`
 
 We often do our best when doing it for someone else...perhaps it's human nature, something to encourage us to work together as a society, since no man is an island. I mean, I'm a terrible writer, but people seem to like these, as I'm writing them for all of you...and for her, in a way, in my conflicted back and forth between her privacy and dignity and wanting other people to know about her, to care about her, the way I do, which I feel she deserves, to have more than one lone buffoon know about this great little girl, aside from the ones that knew her before and have since abandoned her...way...
 
 ## 25693829  ##
 
-\>\> 25693646
+`>>25693646`
 
-\>\> 25691484
+`>>25691484`
 
 
 
@@ -6544,7 +6540,7 @@ Yes, yes he is.
 
 ### 25693646  ###
 
-\>\> 25693540
+`>>25693540`
 
 > _Heather is awesome._  
 > _'Definitely has a lot of character, especially in comparison to James and Henry._  
@@ -6585,7 +6581,7 @@ Well, that'd depend. I've kind of discussed this before, but it got a bit bogged
 
 #### 25694573  ####
 
-\>\> 25694288
+`>>25694288`
 
 > _yeah, i appreciate that, it wouldnt really be about you and amputee chan as such, it would just be a novel where the main character is a male nurse, and the patient he cares for has the same story as amputee chan, and i'd use that plot framework to work on other themes, for example, the main character would muse on how hard it is to be a good person today, there'd be some ambiguity as to whether he really cared, and he'd question himself abbout it, theres all kinds of other themes i'd work into it, i'd just use the very basic aspects of the story as a basis for a plot. obviously if it did well (who knows, it might) you could contact me and i'd make sure you and amputee-chan got a fair cut._  
 > _'basically what im trying to say is that it wouldnt just be c/p the wikichan entries into notepad and publish, i'd use the very basic premise of male nurse + amputee chan, and really no other details would be the same, aside from maybe one or two events, such as her lashing out at the war vet. it wouldnt just be like a re-telling of what you've already written is what i mean_
@@ -6597,7 +6593,7 @@ If you want to be 'inspired' by it, then just leave me out of it entirely, and g
 
 ### 25694037  ###
 
-\>\> 25693929
+`>>25693929`
 
 > _Does she have freckles too? :3_
 
@@ -6608,7 +6604,7 @@ And to get back to things that might actually be fun after that brief rant which
 
 ### 25695069  ###
 
-\>\> 25694840
+`>>25694840`
 
 > _sure, thats okay, i might write it up anyway, and maybe show it to you at some point just so you can see what you think, but if you dont want it published, even though it would be so loosely based on your story that i probably could publish it, i wont do it._
 
@@ -6619,7 +6615,7 @@ Like I said, if you change all the details but male nurse + little girl with amp
 
 ### 25695260  ###
 
-\>\> 25695048
+`>>25695048`
 
 > _yeah thats basically what im talking about, male nurse+orphaned amputee patient is the ONLY thing i would take from your story, i wouldnt be writing any of the events that you describe, myself, because honestly, i'd never be able to respect myself if i was successful through basically paraphrasing what you've already written. i kind of feel unoriginal enough for taking the concept of male nurse+ amputee chan anyway, which is why i want it to deviate from your story massively, it really would be completely different (amputee chan would probably be moved to a different hospital and nurse-kun wouldnt be able to see her, for example, to demonstrate the evils of bureacracy). it's not like i'd be using the names "nurse-kun" and "amputee-chan" either, but thanks for taking the time to talk to me about this._
 
@@ -6627,7 +6623,7 @@ Well, there you go then...as said, don't claim a 'based on the true story' or hi
 
 ## 25696021  ##
 
-\>\> 25695313
+`>>25695313`
 
 ...it seems she wasn't the first half-breed in her family. Going way back when (well, not WAY WAY back, but a fair ways), back to her great-grandmother on her mother's side of the family...said great grandmother, back in the early to mid 30s...fell in love with an American. She and her family had already been living in America for a while, so it wasn't as though she'd been picked up in a bar in Tokyo, but it was still quite unexpected for them, this blonde-haired, blue-eyed gaijin coming to ask their permission to see their daughter. Which they refused, apparently, but they still saw each other in secret...pretty wild for a Japanese girl at that time and age, really. One thing led to another, as they continued seeing each other being her parents backs (and his, too, they wouldn't be too happy about it either), and...she got pregnant. With my girl's grandmother. This was in the mid-30s, back when anti-miscegeneration laws were still in place...blocking blacks and whites from marrying in particular, but ALSO just about any other sort of race-mixing...it was actually illegal for them to get married in the state they lived in. And their child was actually evidence that could be used against them to bring felony charges of adultery or fornication!
 
@@ -6693,7 +6689,7 @@ Buoyed by the tides of success, I left a message with the administrator explaini
 
 ### 28267678  ###
 
-\>\> 28267496
+`>>28267496`
 
 > _So tell us, Nurse-kun: how much cleaning up did you have to do before Ampu-tan visited your house? Were you basically hiding every scrap of porn you could find?_
 
@@ -6710,7 +6706,7 @@ It's quite odd, isn't it, the way the thread suddenly died...I can't explain it,
 
 ## 28268366  ##
 
-\>\> 28267902
+`>>28267902`
 
 Making my way to her room and letting myself in with a light knock, I found her looking roughly as sick and miserable as she had when I last saw her awake, just sitting there, slouched a bit, not even feeling up to doing anything, reading, playing DS, folding, anything. Naturally, this just made me feel I'd made the right decision, and I smiled, took a seat, and told her that I had a trip planned for us. When, she asked? Why, now!, I answered. She looked vaguely surprised and skeptical, but I assured her it was true, and began selecting some clothes for her to change into, and generally organizing for the 'trip'.
 
@@ -6756,7 +6752,7 @@ the entire internet is pressing the limits on its cute intake right now. two or 
 
 ### 28271486  ###
 
-\>\> 28271330
+`>>28271330`
 
 > _...and then you showed her your penis._
 
@@ -6816,7 +6812,7 @@ Copy hasn't arrived yet. Last time I buy from PlayAsia.
 
 ### 28278860  ###
 
-(fake trip troll, still amusing) \>\> 28278233
+(fake trip troll, still amusing) `>>28278233`
 
 > _...she went straight for my throat. She'd been thirsting for fresh blood all week, and this was the first chance she'd had in awhile. By the time I got over my shock it was too late, and she had me in her loli-vampire trance. So, basically I'd been turned into her mindless slave, willing to do her bidding even at the cost of my own life and of those I love. I guess the really major career changes always sneak up on you..._
 
@@ -6824,13 +6820,13 @@ Copy hasn't arrived yet. Last time I buy from PlayAsia.
 
 ### 28278860  ###
 
-\>\> 28278233
+`>>28278233`
 
 Hahaha, that's some good stuff. ...but seriously, how would that be a career change for me from my present circumstances?
 
 ## 28278956  ##
 
-\>\> 28278233
+`>>28278233`
 
 ...tucked her into bed. Then placed my cell phone, with a note explaining how my pager number was set to autodial by pressing a certain number, which would wake me if I was asleep and she needed anything, on the table beside her. Then I stepped outside, closing the door most of the way, and went off to collapse onto the couch and fall asleep myself, pager set to audio on the table beside me.
 
@@ -6860,7 +6856,7 @@ Neat. And, well, she's smarter than I am...but, hey, male nurse.
 
 ## 28280197  ##
 
-\>\> 28278956
+`>>28278956`
 
 We both slept pretty peacefully, save for a middle-of-the-night bathroom emergency, but even that was handled without dire results. Catching up on needed rest as we were, it was nearly nine am before either of us stirred, the 'either' in this case being me, what there is of my pride as an adult being happy to say. After a brief checking in on her and finding her fine, and in what would be full sonorous sprawl if she still had all her parts, I wandered back into the kitchen to make some coffee, and began to prepare breakfast, as well. The scent of which apparently stirred her to wakefulness, as bacon, eggs, hashbrowns, and toast sizzled away on the stove (well, ok, not the toast, but you know what I mean).
 
@@ -7000,7 +6996,7 @@ Thanks. I'll look into those.
 
 ### 3753148  ###
 
->  _\>\>3753083_
+>  _`>>3753083`_
 >  _REMEMBERING YOU EXIST AND THEREFORE READING UP ON _**_WIKICHAN_**
 >  _I DON'T KNOW HOW MUCH YOU CAN ACTUALLY COMMUNICATE VIA POKEMONS SINCE I DON'T OWN THE GAME, BUT I HERD THAT CHATOT HAS AN ATTACK THAT LETS YOU RECORD YOUR VOICE. THEN AGAIN, I DON'T KNOW IF THAT WORKS ON WI-FI. JUST THROWING IT OUT THERE._
 >  _ALROUND, GIVING OUT HER FRIEND CODE TO /b/ IS PROBABLY A BAD IDEA, IF YOU WERE CONSIDERING IT. MY 2 CENTS._
@@ -7203,7 +7199,7 @@ She hasn't nicknamed even one of her pokeymans as far as I can tell, either. I'm
 
 ### 28666714  ###
 
->  _\>\>28666520_
+>  _`>>28666520`_
 >  _You can't. They have select words. Mail isn't a worry._
 
 Hmm, good to know.
@@ -7215,7 +7211,7 @@ Indeed, the 4chan conundrum.
 
 ### 28666792  ###
 
->  _\>\>28666434_
+>  _`>>28666434`_
 >  _We only would inquire whether certain rod-like items have in the past, present, or possible future ever penetrated within said rectumNamely a PENIS_
 
 I already told you, she's only gotten a little way into the game so far. All she's had to handle so far is an old rod!
@@ -7226,14 +7222,14 @@ For the record. She was using the internet a fair amount before the accident, as
 
 ### 28667251  ###
 
->  _\>\>28666859_
+>  _`>>28666859`_
 >  _Here's a good screening technique: DONT TELL THEM YOU ONLY WANT THEM TO BATTLE A CRIPPLE WITH FRAIL EMOTIONS FOR WHOM YOU SEEK TO FIND SOMEBODY TO GIVE HER PITY TO HELP HER SHITTY SELF ESTEEM SINCE SHE IS MISSING THREE LIMBS AND HER LIFE TOTALLY SUCKS SAVE FOR THE INVOLVEMENT OF A SUSPICIOUSLY MOTIVATED MALE NURSE._
 
 Yeah, good job on making shit up to bridge 'doesn't have any friends to play with' to 'plz play to her and lose u guys'. At least put some effort into it, man.
 
 ### 28667634  ###
 
->  _\>\>28667148_
+>  _`>>28667148`_
 
 Oh, and to follow this up: Since the only computer access available in the facility is for the staff, at workstations and in offices (the policy is not so up to date as to provide internet access to the old people in our place, no siree), her DS is still pretty much her only internets-capable device available to her (possibly to any patient). And she doesn't have that internets program/cartridge/something I've heard about, if it exists at all (I just play the games, yo).
 
@@ -7249,21 +7245,21 @@ Look, I don't go to other forums or websites or whatever where I could get some 
 
 ### 28668049  ###
 
->  _\>\>28667251_
+>  _`>>28667251`_
 >  _Also, as a kind gesture, she have a favorite pokemon we could try and get for her?_
 
 Well, she apparently had a couple of the gardevoir evolution family in the previous generation, and liked them. And thinks this whole 'lol have to catch 'em all (even if only catch sight of) before you can trade between versions' thing is 'stupid'.
 
 ### 28668264  ###
 
->  _\>\>28667148_
+>  _`>>28667148`_
 >  _Dealing with random anonymous bad people is very different from dealing with Random Anonymous bad people. /b/ is filled with assholes who's only pleasure is to fuck with people. It's one thing for her to deal with a trash-talker or pedophile or whatever; she can probably handle that. But what about when some /b/tard names their Pokemon "Stumpy", "Loser", "Orphan", and "Freak"? How much will that hurt her, not only the insults, but the knowledge that you've been talking to random people about her?_
 
 Yes, yes, I GET IT. Christ.
 
 ### 28668571  ###
 
->  _\>\>28668049_
+>  _`>>28668049`_
 >  _SO I HERD U LIEK GARDEVOIRS_
 
 Yes, I've known what Gardevoir is for some time now, thanks to /b/. Came up during discussion, when she also said that the Abra-types were 'boring'. I guess mustache magic didn't work so well on her...
@@ -7276,7 +7272,7 @@ Um, well, even if it WAS me, the best way would probably be to behave as you mig
 
 ### 28668910  ###
 
->  _\>\>28668049_
+>  _`>>28668049`_
 >  _Actually, Its possible to have any pokémon before you "See the 150"._
 
 If anyone Trades her anything it'll work, Its just the GTS where you have to see it first before you can get it.**' I think she was talking about the system for trading between GBA carts and the new games, but, right. She's hesitated at going into GTS and such so far.**
@@ -7295,7 +7291,7 @@ She'll need some motherfucking diamond pokemans. Maybe. Seems to be happy with h
 
 ### 28669094  ###
 
->  _\>\>28668264_
+>  _`>>28668264`_
 >  _I wasn't trying to be harsh, just insistent. We're all rooting for you, Nurse-kun. Don't forget that._
 
 I know, sorry. It's just that everyone's acting like I'm throwing her to the lions while drooling all over myself, here. And I'm not. Give me some credit, you know?
@@ -7308,7 +7304,7 @@ She isn't interested in communication, she's interested in some pokeyman fights 
 
 ### 28669545  ###
 
->  _\>\>28668794_
+>  _`>>28668794`_
 >  _Awright, Awright, Awright. >:3But.. I mean.. .... How many guys(Looked to be late twenties) running arround with an adorable loli can there possibly be? @.@BTW.. you reminded me of a slightly stockier subway commercial guy.. I forget his name, but the guy(You, or whoever) reminded me muchly of him, in physical appearance. I mean.... really average._
 
 Hey man, screw you. I don't look anything like that dick! Must've been some other loliherder...
@@ -7335,7 +7331,7 @@ No.
 
 ### 28669808  ###
 
->  _\>\>28669236_
+>  _`>>28669236`_
 >  _i am intrigued. You must talk like you were asking a stranger the time, but then slip in a 'btw, sup b?'depending on response, dont freak out. ask if he is a caretaker or a nurse, maybe give him your phone number or email address, and promptly leave. supposing it is him and he finds you decent enough, you'll get a call or email. in a perfect world, of course._
 
 That, or he'll come to your place and brutally murder you in your home, then use his experience in the ER and the OR to dismember your corpse and dispose of it in an untracable manner!Maybe.
@@ -7348,7 +7344,7 @@ The penguin did seem to suck, from what she showed me. Some 20 power bubble atta
 
 ### 28669980  ###
 
->  _\>\>28669614_
+>  _`>>28669614`_
 >  _has she gotten healthy again?_
 >  _and are you healthy again?_
 
@@ -7374,7 +7370,7 @@ Still ongoing, no change from my last thread-time. We went on a picnic on wednes
 
 ### 28670588  ###
 
->  _\>\>28669677_
+>  _`>>28669677`_
 >  _also, you could try out the friend codes playing instead of her for a few sessions to check them out before deciding whether or not the people behind the codes are decent or not._
 
 Something I've considered, doing a little 'undercover as loli' work, though I'm not sure how well I'd pull it off, and, well. I don't think I'd pass very well, chief. You don't know what it's like out on those streets, chief! You don't know what they'll do, who they'll cut, who they'll sell, just to get their hands on another fresh loli!! I ain't going out there unprotected!
@@ -7439,14 +7435,14 @@ Pooper? That's where we poop from?
 
 ### 28672830  ###
 
->  _\>\>28672563_
+>  _`>>28672563`_
 >  _What other DS games she has. AFAIR she has Cooking Mama... anything else?_
 
 Off hand recollection: EBA, Ouendan 1 and now 2 (still unplayed as of last I saw her), Pokemon DS (duh), Cooking Mama, Mario Kart DS, Phoenix Wright 1 and 2, the Metroid DS games...um...that's all I can think of at the moment? There are others, though.
 
 ### 28672899  ###
 
->  _\>\>28672619_
+>  _`>>28672619`_
 >  _Nurse-kun, you're so awesome I'm not even going to say "lurk moar" because I know that you know that I know that you know what he meant._
 
 I'll just give you a knowing wink, man. There, I just did it.
@@ -7459,7 +7455,7 @@ It's because you touch yourself.
 
 ### 28673296  ###
 
->  _\>\>28672830_
+>  _`>>28672830`_
 >  _Wow, her collection is really nify. Has she tried WiFing with Mario Kart or is Pokemans her first adventure into land of NintendoWiFi?_
 
 No wifi with the mario kart as of yet...or as of since the accident, anyway. It's hard to play well with the one fully functional hand; we just play single player cooperatively together, as it is. I think she'd just played face to face with her friends previously.
@@ -7472,7 +7468,7 @@ Hmm...that's very interesting. So, what I've come to thus far as far as conclusi
 
 ### 28673928  ###
 
->  _\>\>28672830_
+>  _`>>28672830`_
 > >  _phoenix wright is awesome!_
 >  _OBJECTION!!It's awesome 'till you beat it. Then there's almost no point in playing it ever again._
 
@@ -7486,7 +7482,7 @@ She handles the direction pad and L button, I handle the other buttons and R?
 
 ### 28674327  ###
 
->  _\>\>28674143_
+>  _`>>28674143`_
 >  _why do you make statements into questions?_
 
 Is that wrong for some reason?
@@ -7499,21 +7495,21 @@ RL does not work that way!
 
 ### 28674581  ###
 
->  _\>\>28674327_
+>  _`>>28674327`_
 >  _yes. horribly wrong.and that one didn't count because it was actually a question. so you failed._
 
 What do you mean?
 
 ### 28674710  ###
 
->  _\>\>28674581_
+>  _`>>28674581`_
 >  _what do you think he means?_
 
 If I knew that, I wouldn't be asking?
 
 ### 28674785  ###
 
->  _\>\>28674710_
+>  _`>>28674710`_
 >  _or would you?_
 
 I probably wouldn't?
@@ -7532,7 +7528,7 @@ I don't have a fake daughter?
 
 ### 28675056  ###
 
->  _\>\>28674785_
+>  _`>>28674785`_
 >  _... That's just a declarative statement with a question mark tacked onto the end!_
 
 I guess it might be? It's a tad ambiguous? I could be more clear?
@@ -7551,14 +7547,14 @@ This isn't silly?
 
 ### 28675434  ###
 
->  _\>\>28675016_
+>  _`>>28675016`_
 >  _I saved the thread, ill upload it later. a text transcript of nurse-kun's responses have been uploaded as part of _**_chapter_**_ _**_23_**_, but not formated, so it hasn't been added to the _**_damaged_**_ _**_goods_**_ registry yet. I'm going to add similar transcripts for this thread, the /v/ thread, and the dis.videogames thread once I'm done with this one, since they all center around pokemans, and having 4 seperate chapters based on pokemans seems retarded._
 
 Such dedication. I don't think I deserve it. I'm just a dumb nurse.
 
 ### 28675696  ###
 
->  _\>\>28675330_
+>  _`>>28675330`_
 >  _Nurse-kun saves lolicuz amputees are sexyher pooper, stick it._
 
 The loli is cute.Too cute to take advantage.Already stuck it.
@@ -7577,7 +7573,7 @@ Sadly, my dear friend.You fail at math or haiku.Five, seven, then five.
 
 ### 28676243  ###
 
->  _\>\>28676151_
+>  _`>>28676151`_
 
 But don't give up yet! You can always try again.Success lies ahead.
 
@@ -7595,14 +7591,14 @@ Uninformed, am I.The matters of piracy.Elude me. Avast!
 
 ### 28676631  ###
 
->  _\>\>28676496_
+>  _`>>28676496`_
 >  _Get her an M16 instead. Much more fun._
 
 The jungles of 'Nam.My dad's boyish outlook, gone.P90's her size.
 
 ### 28676749  ###
 
->  :: _\>\>28675663_
+>  :: _`>>28675663`_
 > >  _you could probably easily mod a guitar hero controler to mount the strum bar up on the neck behind the fingerboard for left thumb access._
 >  _I dunno, that would seem a little too cumbersome. Maybe Nurse-kun should just strum for her._
 
@@ -7620,14 +7616,14 @@ We rape all cultures.
 
 ### 28676997  ###
 
->  _\>\>28676749_
+>  _`>>28676749`_
 >  _You fail at rhythm?Rhythm games are not for you.What games do you like?_
 
 Nurse-kun, musical? No.Tone-deaf would be far too kind.Success through hard work.
 
 ### 28677113  ###
 
->  _\>\>28676496_
+>  _`>>28676496`_
 >  _It is a "passkey"Put an SD card it inThat has all the games._
 
 I believe you slipped.'In it' would be more correct.Grammatically.
@@ -7652,10 +7648,10 @@ Oh, really? That's great!Volunteers are as the sun.For our work's green heart.
 
 ### 28677597  ###
 
->  _\>\>28676151_
+>  _`>>28676151`_
 >  _Whoops! I DISGRACED THE SACRED ART OF HAIKU!SEPPUKU TIME!_
 
-> >  _\>\>28676826_
+> >  _`>>28676826`_
 > >  _That's not what I meant.They are stupid anyway. Even moreso here._
 
 All things are stupid.There is no meaning at all.Which is why we strive.
@@ -7672,7 +7668,7 @@ Your tears taste like wine.Aged in your rotten bodies.I delight in them.
 
 ### 28677851  ###
 
->  _\>\>28677597_
+>  _`>>28677597`_
 >  _Haikus are to slow.You are like 10 posts behindYou better hurry up._
 
 Rome was not built quick.  
@@ -7681,7 +7677,7 @@ Cry more, dear shota.
 
 ### 28678081  ###
 
-\>\>28677929**'
+`>>28677929`**'
 
 Oops, did you slip up?  
 Fail like that is great success!  
@@ -7689,7 +7685,7 @@ Party time, excellent.
 
 ### 28678274  ###
 
->  _\>\>28677851_
+>  _`>>28677851`_
 >  _Cry more I will not.My tears do not taste like wine.They are more salty._
 
 And yet, you concede.  
@@ -7698,7 +7694,7 @@ From lapping them up.
 
 ### 28678373  ###
 
-\>\>28678037
+`>>28678037`
 
 I struggle onward.  
 The perpetual failure.  
@@ -7727,7 +7723,7 @@ Words, shaped into song.
 
 ### 28678694  ###
 
->  _\>\>28675663_
+>  _`>>28675663`_
 >  _about this, Nurse-kun have you seen that one handed xbox360 control custom made for amputees._
 
 <http://benheck.com/Games/Xbox360/controls/1hand/singlehandcontroller.htm>
@@ -7746,7 +7742,7 @@ Give us a good laugh!
 
 ### 28678876  ###
 
-\>\>28678785
+`>>28678785`
 
 Don't feel too bad, man.  
 It was on topic and nice.  
@@ -7776,7 +7772,7 @@ So I'm having fun.
 
 ### 28679436  ###
 
-\>\>28679220
+`>>28679220`
 
 The taliban gasped.  
 Then, he dropped his Soviet gun.  
@@ -7845,7 +7841,7 @@ I'm not a bird, yo.
 
 ### 28680736  ###
 
-\>\>28680517
+`>>28680517`
 
 Clearly, I meant rogue.  
 Rouge is something that whores wear.  
@@ -7862,7 +7858,7 @@ So much work for fail.
 
 ### 28680938  ###
 
->  _\>\>28680609_
+>  _`>>28680609`_
 >  _But she could get her own baby Metroid ;_;_
 
 But also Ma Brain.  
@@ -7879,7 +7875,7 @@ Into yellow seas.
 
 ### 28681296  ###
 
->  _\>\>28680938_
+>  _`>>28680938`_
 >  _Unladylike, but awesome._
 
 She's awesome right now.  
@@ -7888,7 +7884,7 @@ Like Rally Vincent?
 
 ### 28681481  ###
 
->  _\>\>28680820_
+>  _`>>28680820`_
 >  _meh, its what the people want. who am i to complain if it gets wikichan more hits?Just dont go starting threads about the consistency of your morning shits or anything like that._
 
 I don't check that.  

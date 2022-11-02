@@ -3256,7 +3256,7 @@ Well, yes, I could happily go without inserting (or removing) another catheter f
 
 They're around here somewhere. As I've said numerous times, I'm not much of a photography person, so the roll of film is still around here in some nook or cranny. I keep forgetting about it. I'll try to do it relatively soon?
 
-<a id="chapter13a"></a>
+<a id="chapter13b"></a>
 ## Part Thirteen B (February 13th)  ##
 
 
@@ -3405,19 +3405,4575 @@ Wow. Um, on that note, I really need to get going for work. I'll sign back on to
 >  _"did she have any friends before the accident? do any of them try to visit her?"_
 
 Yes, she had friends, no, they don't visit her anymore. I've been told she lashed out a fair bit and burned a lot of bridges post-accident when they showed up, and kids don't tend to like dealing with disfigurations, even if they're gifted little angels, even if parents don't like to admit it, or that they don't particularly like such people either. I guess. Not a shrink myself. Gotta go now. Night, /b/!
-<a id="chapter13b"></a>
+
 <a id="chapter14"></a>
+## Part Fourteen (February 14th) ##
+
+
+### 20543035 ###
+
+Hey, /b/. I know this is considerably sooner than I've found tends to work well, but I did say yesterday that I'd check in today, to see if anyone had anymore valentine ideas for a certain limbs/eye-reduced little girl. If so, I can print them out and bring them in for her to see, if not to leave them laying around afterward. Non-appropriate contributions aren't unwelcome, though they'd likely remain within the thread for the amusement of ourselves, rather than her perusal. Hit me with your best shop, /b/ and whoever else read the wiki or whatnot!
+
+### 20543251 ###
+
+On a non-valentine related note, not much happened last night, save for my burning some filet mignon so badly that Mama told me I suck and she laughed herself, quite nearly, sick.
+
+I already went out and picked up some candy and some pink origami paper (as she was running low), so suggestions of that sort aren't really needed, at the moment.
+
+### 20543719 ###
+
+> _Aid- No... To obvious. Dunno. I don't think you should get her something. Too creepy._
+
+Well, if I do bring anything in for her to see, it'd be because it's funny and lighthearted, not romantically inclined. Something to cheer her up in general, because she can rarely afford to pass up such a thing at any given time.
+
+### 20543913 ###
+
+> _Nurse-kun? Twice in a week? I CALL SHENANIGANS!_
+
+No, it's me. I did say, last night, that I'd be checking in tonight, so here I am. IGNORE ME!
+
+### 20544341 ###
+
+> **(posts a picture of a left handed glove)** _Go to your local comic book store and see if they have anything she might be interested in_
+
+I don't think baseball's really her thing, what with the lack of depth perception, and all. I'd post a picture of her trying to catch a ball and getting hit in the face, but I don't have the MS Paint talent.
+
+### 20544403 ###
+
+> _I just love you. That girl is awesome. You should totally take pics of her, even though you have reasons not to. especially because the odds of us knowing some random internet chick are low. i cant remember why you wont do it, explain it again._
+
+The interbutt is forever, you are not anonymous, a picture is considerably easier to spread around to places it shouldn't be than a text post on /b/, I'm not comfortable with exposing her THAT much, etc.
+
+### 20544551 ###
+
+> _because we could send that picture around to all the major hospitals and the like, and if she gets identified refer them to the wiki for enough evidence to bring down Nurse-Kun and THEN copy paste his excruciating description of giving her an enema and the hook paragraph. And get him fired and perhaps even legal action. "Anyway, my question: Should I stick it in her pooper (among other things)? I mean, she isn't going to be able to resist, and I can go in there when she's asleep, then cover up her good eye and mouth before she even knows I'm there, with all the drugs she's on. She's so messed up mentally that she probably wouldn't tell anyone, considering she's barely talked to all the shrinks they've had her seeing since the accident. I'm a pretty gentle guy, and there's plenty of lube around here (obviously), and it'd be pretty easy to clean her up afterward, too." ONE MISTAKE AND WE HAVE YOU._
+
+I'm happy to have provided a new hobby to people so desperately lacking in things to do.
+
+### 20544816 ###
+
+![Dan Kim's Valentine Thingy](1171505623452s.jpg)
+> _>>20544341 was it anything like this? If so don't throw it so hard you fuck._ **(image of soccerball impact a man's face)**
+
+...I was speaking hypothetically. I haven't actually had an opportunity to play catch with her yet, and probably wouldn't, since she'd just wind up embarassed, most likely. Particularly since there was an incident with one of my colleagues, though, who tossed her something, playfully, once, not thinking, and when she missed catching it by a foot or so, kind of surprised it'd been tossed at her in the first place, she dropped into a depressive state for the rest of the day, refusing to speak to anyone about anything. Until I came in later, and she complained to me, bitterly, about how the nurse in question was 'making fun of her', and almost started crying as she talked about it.
+
+Catch isn't on the agenda, no. Besides, she isn't some emo hacker fag; if she's going to be anybody, it's Motoko.
+
+### 20544979 ###
+
+> _At least give her a Waha printout from us._
+
+Heh, well, who can find Waha objectionable...?
+But should it be one big page-sized Waha, or a ton of tiled mini-Wahas?
+
+### 20545034 ###
+
+> _print those nana valentine's day cards from dan kim's website_
+
+Somehow, I'm not sure Nana-themed cards would be the most warmly recieved by her. Call it a hunch. The fact that they exist, though, is certainly par for the course for Mr. Kim.
+
+### 20546837 ###
+
+> _What kind of candy was it that you got her, Nurse-kun?_
+
+I got her a special valentine package with chocolate, gummies, skittles, and some licorice. Should be at least one thing she likes in there, depending on her mood!
+
+### 20547395 ###
+
+> _(more waha suggestions.)_
+
+Ok, ok, I'm already planning on the Waha printout...it's just additional 'winners' at this point.
+
+### 20548067 ###
+
+> _NURSE-KUN. print out a pic of nana, cum on it, take pic and post it here. srsly_
+
+Um, maybe another time. It sounds like a great way to celebrate this day of love, but there's the whole lacking digital camera thing and suchlike.
+
 <a id="chapter15"></a>
+## Part 15 (February 23rd 2007)  ##
+
+
+### 21054934 ###
+
+Hey, /b/. A lot has happened in the past week+, thus my absence. I'll try and tell you all about it, so just sit right there, and I'll tell you the story...just kidding.
+
+But seriously, a lot has happened. I'll summarize quick, then get into more detail: Approval for the 'mentoring' has gone through, she enjoyed the Waha flipbook and picture I'm posting here, she got into a fight with another kid at rehab, and I'm going to be taking her out for the afternoon on sunday, though I'm not sure yet where to go. Whew.
+
+### 21055463 ###
+
+Okay, after that standard first response, I'll go into more detail. I finally got an answer from my boss on wednesday on the matter of volunteering my time with her, and it was, fortunately, a positive one! It seems that the lawyers decided it could be a good PR opportunity, if it goes well, and 'safe' for the company, if it goes wrong, since they had me sign about a half-dozen different forms taking all responsibility and so-forth as a private citizen, rather than an employee, etc etc. Really touched me, deep down, their compassion for their fellow man. But it was to be expected, so it's no big thing.
+
+I've been playing email tag with her social worker since then, setting up groundrules and a possible probationary chaperone for the initial outings, so this aspect of the whole thing seems to be going quickly, at least! We've just about got it all worked out, and it's looking like the first date is set, as I said in the initial post, for this sunday afternoon.
+
+### 21055859 ###
+
+I finally spoke to her about it wednesday night, since, as I've mentioned before, I didn't want to raise any hopes or such, in case it didn't happen. We played a Vs. games of EBA first (she kicked my ass in the majority, as usual), as I tried to work up the nerve to start the discussion, and after a round of 'You're the Inspiration' (she still doesn't like the main stage/story, but playing it on Vs. is ok), finally managed to do so, practically blurting out the details in a quick stream of information.
+
+She seemed a bit surprised, unsurprisingly; her first words were 'You'd want to do that...with me?'. Which, I now realize, sounds bad being typed out on /b/, but she was referring to spending time with her outside of what I'm paid to do. Which, while I've sort of been doing that already, I have still been on the clock for, so technically, not quite.
+
+### 21056427 ###
+
+I quickly assured her that, trying to sound as casually cheerful as I could manage, that yes, I did want to, because she was a smart, cool, awesome little girl, and she deserved attention and experiences in more ways and places than she'd been having, lately. Well, not in those words exactly, but that was the gist of my response. She didn't seem to know exactly how to respond to that, as she usually can't seem to with most compliments or statements of her worth, and after nearly a minute of silence, I spoke up again, telling her that she didn't have to do it, of course, that she could tell me yes, or she could tell me no, it was all up to her.
+
+She kept staring down at her hand on the bed, where it was twisting the sheet slightly, a nervous habit she's had since I've known her, then, finally, gave a short, abrupt, nod. I leaned in a bit, intending to ask her to confirm it, when I noticed she was tearing up, and fighting to maintain her composure...so I simply gave her a hug, instead, and let her cry for a while on my shoulder.
+
+### 21056804 ###
+
+Moving on...I brought it up yesterday, asking her if there was anywhere she'd like to go for the afternoon, any favorite places she had, or anything she'd like to do; movies, favorite restraunts, museums, anything? She said that...no, she didn't have anywhere she wanted to go in particular, acting somewhat evasive as she did so, which led me to conclude that even if she did, she may have ulterior motives for either not telling me, or not wanting to go. I mean, her wheelchair alone is a problem...for her, at least, in that she hates it, and doesn't like to either spend time in it, or particularly to be seen in it; medical staff is one thing, she's more or less accepted that she has to be in it to get shuttled around by them, but to be seen in it by general members of the public? She doesn't deal with that so well...
+
+Anyway, it's something I'm still thinking about myself, something she might like, since she won't tell me herself; any ideas, /b/? Can't hurt to ask, though I can't promise you'll be The Decider.
+
+### 21057290 ###
+
+Ok, moving on. After the valentine's day thread, I decided on a Waha flipbook, printing out a couple dozen pages of tiled mini-Wahas from that dancing gif, then stapled it on the top-right, so she could hold it with her prosthetic hand and flip it with her left. It made her smile, a least briefly, so it was well worth the paper and ink expenditure, I'd think.
+
+I...also printed out the picture from the OP, and gave it to her as well. I told her that it was done by a friend of mine, after he'd heard about her, and was inspired. As I've mentioned before, she's a Samus/Metroid fan, so thankfully, it turned out to be a big hit. She seemed genuinely tickled by her portrayal, and even more amused by mine. It's currently tacked up onto the wall beside her bed, in a position where the sun can shine onto it from her window.
+
+So there you go, /b/; you've directly, by the actions of one of your members, made an unhappy little girl smile, and hang one of your artistic works on her wall. I'm fairly sure this may be a first.
+
+### 21057447 ###
+
+> _Wow. That's a tough one. Not public? Well, if we combine our /b/tard powers we should be able to come up with something._
+
+Yes, public, just to be clear. I'm not taking her home or anything, particularly since, as I may not have made clear, her social worker is going to be there with us, as a chaperone, at least for the first few times. I was thinking maybe somewhere that wouldn't be full of ignorant kids (you know, any of them) or adults that might stare at her or whisper or something, since as someone trying to he;lp and heal people, punching them would make me feel bad. Doesn't have to be people-free, just maybe screaming jackass lowest common denominator free.
+
+### 21057690 ###
+
+Moving on again...the fight. Yeah, this part isn't as pleasent a sort of news as the others, but I suppose you'd want to hear it, (well, the people that want to hear any of this), as it was somewhat 'big'.
+See, the rehab facility is a seperate building on the hospital's grounds, three stories, a pool, etc. I've been there a few times over the years, for various reasons, and it seems like a decent place. Still, I wasn't there when this happened, so I only heard about it secondhand, since I've struck up a bit of a friendship with her primary rehab nurses; introduced by a friend of theirs that works in the home, as her 'primary caretaker', it's a story I'm not really going to get into here, but suffice it to say that I heard all of this from her own rehab nurse, who was there for it. It happened this monday (the 19th).
+
+### 21058358 ###
+
+So. She was putting her legs on with the backup he;lp of her nurse (she's gotten pretty good at it so far, inverting the sheathes then 'rolling' them on with mostly her good hand, but getting better at using her prosthetic to he;lp out, then donning her legs), when the nurse noticed that she had paused, and was looking elsewhere. When she looked as well, she caught a boy a couple years older than her, who'd been in an accident that damaged his spinal cord, leaving him not paralyzed, staring in you-know-who's direction.
+
+When he saw that the nurse was looking his way, he looked away as well, and she turned back to her own patient, telling her it was all right, that she could continue. She (our girl) stared at the boy a moment longer, frowning, then finally acquiesed, and finished donning and adjusting her legs, the nurse checking on them and making sure they were secure, then wheeling her over to the parallel bars, to begin the 'work' of the session.
+
+### 21058382 ###
+
+> _you know she might not be too fond of getting in a car, right nurse-kun? you might need to focus on what you can do relatively close to the hospital. in fact, you might not even want to drive at all._
+
+I know, we'll be taking a van/bus designed for wheelchairs. Child and Family Services provided, hurray for them doing something helpful! And yes, she's still having trouble with riding in just about anything on the road, but I can only do my best to he;lp her get through it. She can't live the rest of her life with a maximum 'on-foot' radius, after all, in this modern world of ours...
+
+### 21058930 ###
+
+She did her best, as usual, giving it everything she had; she's getting better all the time, and managed consecutive two round-trips with assistance this time before being too tired and needing to rest for a while, and made several more 'sets' before they finished that part and were going to begin on the exercises, isometrics, stretching, with weights (and bands to hook over her stumps and such, quite a lot of contraptions you don't see in a normal gym), etc. Her nurse left her to rest a bit in her chair, her arm and legs still 'on', while she went to fetch something someone else had left in the supply room, one of the bands I mentioned earlier, I believe.
+
+When she got back to the room she heard screaming from multiple sources, and came in to find a cluster of people doing said screaming and shouting around a couple of kids and a toppled-over wheelchair on the floor.
+
+### 21059058 ###
+
+> _wait, so where's she going all the time? it sounds like she rides around pretty regularly. i thought she basically had nothing to do except some physical therapy._
+
+The rehab facility, which I believe I've explained is located on the hospital's grounds, while the home is about four blocks away (built there for that reason). Wheeling her there, particularly in the winter, isn't very feasible.
+
+### 21059331 ###
+
+Her nurse ran over as quickly as she could, one of her colleagues helping get the crowd back, and she found our little girl pulling the boy's hair with her good hand, and holding onto his shirt with her prosthetic one, on top of him, where he'd fallen over with his chair, furiously silent, eyes narrowed; he was grabbing her around her throat with one hand (which she seemed to be ignoring) and trying to push her away with his other (which didn't seem to be doing too much), and crying and screaming.
+
+Needless to say, she did her best to pull her off of him without her taking his scalp with her (she only kept a few bloody clumps clutched in her good hand), and backed away from the boy, while her colleague that was working with him helped him back into his chair (now sobbing), his mother screaming bloody murder about 'that little psycho' hurting her little angel.
+
+### 21059750 ###
+
+Attempts were made to calm people down, she was loaded back into her chair (and the hair clumps were taken away) and checked for injuries (she had bruises around her neck when I saw her that night...they've mostly faded by now), which were minor, and he was taken away by his mother, who was shrieking about lawsuites.
+Now, at first, she refused to talk about what happened. Eyewitnesses, in particular her nurse's colleagues, said that the boy had wheeled his way over to where she was sitting in her own chair, resting up, and they'd seemed to be talking for a couple of minutes, whereupon she actually 'lunged' forward with her whole body (which is a lot harder than you might think, lacking knees as she does), grabbing onto him, which he tried to get away from by moving his chair back, which just helped her stand up, as she was still holding onto him, whereupon, by a push from her possibly combined with his chair's momentum, he and his chair fell backward and toppled over, and she went with him, with him screaming all the way.
+
+### 21059896 ###
+
+> _i see. well, if she's getting more comfortable with riding around, you might be able to take her out of the city on a picnic or something. a more relaxing drive with fewer cars might not be too bad, there wouldn't be anyone around, and she could get some real fresh air._
+
+It's still a bit chilly to just sit around in a snow-covered park for a few hours. Maybe come springtime?
+
+### 21060273 ###
+
+And she apparently wasn't just pulling his hair, but smacking his head into the ground, as well. Ouch. Anyway, she refused to talk about why she'd done it, at first, but finally claimed that he'd started it, that he was 'making fun of her'. Well, once she was checked out for further injuries, which, other than a few bruises, a cut on her hip from the impact from the chair (band-aided with a dora the explorer theme) and a slightly strained muscle from the initial lunge, were almost nonexistent, meaning she certainly gave worse than she got, which isn't bad against someone two years her senior and one limb and eye surplused. She was sent back to the home without completing her usual routine, and spent the rest of the day more or less sulking in her room.
+
+When I got there this evening, her rehab nurse had actually already called me at home, letting me know what happened, and I checked her chart carefully for anything that might've happened since. Finding nothing in particular, I eventually headed for her room, and after an hour or so of refusing to talk about it when asked, and playing some chess (something else she beats me at most of the time, way to make a grown man feel stupid, really), she finally blurted out what'd happened.
+
+### 21060770 ###
+
+It seems...he'd started their little conversation by asking 'What are you?'. She wasn't sure what he was talking about, so he explained, he thought she 'looked funny', like she was white, but 'weird', too. It finally clicked for her, and she, to her credit, explained more or less calmly and politely (well, for her, meaning less than cheerfully) that her dad was 'white' and her mom was Japanese. This seemed to stun the young man, and he mulled it over for a bit, then started making racist jokes.
+
+Yeah, little angel. I mean, not like Stormfront or KKK jokes, but the sort of thing jackasses and white trash, particularly kids thereof, make when they've never even met a real asian. I think he did the 'pee-pee in your coke' one, cleverly substituting japanese for chinese, and made a few 'slanty-eye' with fingers on eyelids stretching action ones, and so on...she wasn't very coherent when she was describing it all, her knuckles white as she squeezed the bedsheets, and her face flushed with anger, at the same time as she was starting to cry but fighting the tears. Anyway, he was just in the middle of a pokemon joke, saying that she looked more like a 'Steel-type' than a human when she attacked him, and, well, I guess you know the rest of the story by now. I have to grant him the fact that he at least came up with some original content to push her over the edge...
+
+### 21060921 ###
+
+> _What the Fuck is Waha?  
+> _Waha is a chibi version of Yamato Suzuran, created by 2chan.  
+> _What the Fuck is Suzuran?  
+> _She's the 13-year-old loli from the H-Game Suigetsu Mayoi Gokoro, in which the protagonist (you) fuck her senseless.
+
+Yes, yes, I know that. I can always claim ignorance if she finds out, which hopefully won't happen. I mean, how would she?
+
+Besides, Waha is cute, Suzuran's boning or no.
+
+### 21061160 ###
+
+> _it might be nice for her to get some good food from a restaurant. maybe you should see if there's a decent place where she won't feel like she's on display. not a stellar idea, sure, but it could be one more way to break the monotony._
+
+I agree, if it wasn't too busy and dimly lit. That way she wouldn't feel so self conscious about being there.
+
+### 21061307 ###
+
+Thinking back on it, the kid was probably just being a jackass, like most kids (particularly boys) that age are. No real, deeply-felt malice, just something strange and exotic that seemed funny and weird to him, so why not make jokes? Still, I can't say I feel bad about what happened to him, maybe it'll 'sensitize' him a bit...or at least tenderize him.
+
+Anyway, once she'd gotten the anger out of the way and finished the story, telling me how she'd just felt SO MAD, and how he'd been laughing as he said it all, and making fun of her mom, and...well, she started crying, too, and I did my best to comfort her.
+
+### 21061448 ###
+
+I repeated her story to her shrink the next day, staying late at the home past my shift to do so, and having her promise to explain it to her social worker as well, to try and avoid a black mark or something on her records, I went home, and crashed until the mid-afternoon, whereupon I called her rehab nurse, and explained to her, too. It's thus been somewhat smoothed over, or more acceptable at least, than it was, so people aren't freaking out TOO much...and the boy wasn't seriously injured, and with him not being able to deny the story very convincingly as of yesterday, the lawSUITE seems to have died down, hopefully.
+
+Anyway, this should be a cautionary story to all you /b/tards out there, on the subject of racist humor. It's all funny until someone loses a testicle to a one-eyed kung-fu-gripping loli. Remember that.
+
+### 21061943 ###
+
+Ok, Nurse-kun here, replying to OP because there've been far too many posts on the subject of where to go to pick one.
+
+The zoo is a nice idea, but maybe not for a first time, maybe on a weekday when there wouldn't be as many kids/families. A movie...a sunday matinee for an age-appropriate picture (is there even any age-appropriate movie out that doesn't suck right now? I'm sure as hell not taking her to see Bridge to Terabitha...) would probably be kid/family filled, even if it's dark, so I'm not too sure about that. Thinking about it. There's an independant theatre or two around here, but I don't think they're showing anything appropriate either, though I'll have to check on that. Bit cold for a picnic. A museum might be good...I'll have to check and see what the current exhibits are, and the sorts of people that bring kids/go to a museum on a sunday probably wouldn't be total asses, hopefully. A library...that might be a good idea, actually. The central library is certainly handicapped accessable, and probably wouldn't be too busy on a sunday afternoon, and again, the sort of people there might not suck. As for food, I have a couple of places I like, that I could check with ahead of time, let people know her situation, so things could be set up so she's comfortable perhaps...hm...good ideas so far, thanks, people...keep 'em coming.
+
+### 21062257 ###
+
+> _what are her prosthetic legs like?_
+
+To get this out of the way, though it's a way back. She has a slight variation on this: <http://www.ossur.com/prosthetics/juniorprosthetics> which is a good leg, as far as I'm aware. Hers isn't painted like that, though...it hasn't been 'customized' at all, actually, thus far...though she does take good care of them, she isn't 'detached' from them, but she isn't at the stage where she's going to pain on them just yet.
+
+### 21062257 ###
+
+Er, paint on them. ...though she does still have some phantom limb pain, too.
+
+### 21062649 ###
+
+> _Haha, oh wow, if she can go so berserk that she clobbers him with just one arm... MAD skillz! Though I think it does show a great deal of frustration with her current condition if she can snap like that. Hopefully the situation was cathartic for her without leaving her feeling too guilty. Get her to redirect that strength and frustration to rehabilitation._
+
+She hasn't been too on edge since it happened, so I'd say it didn't quite traumatize her the way the old bastard did...the kid wasn't yelling angrily at her, after all, before she kicked his ass. Though...they did change the schedule for his rehab to make sure it doesn't coincide with hers in the future.
+For his own protection, you know.
+
+### 21063174 ###
+
+> _Take hear to a book store. A big one like borders or Barnes & Nobles. preferably someplace with an attached cafe or deli, so she can get some non nursing home food while she's out. Like a library, you can facilitate her reading without worrying about her being embarrassed in public (no kids her own age there to be shy in front of, stacks to hide behind, etc). give her a comfortable allowance of maybe 30 bux (a lot for a 7 year old, but books are expensive these days, and it sounds like she does a LOT of reading...) and let her lead the way. give her a bit of independence, but make yourself available if she wants a book from a high shelf. maybe case the store first, make sure they're handicap accessible._
+
+This is a pretty darn good idea...I'll have to take it into serious consideration. Though the central library has shelves and such as well, obviously, and big windows all over the place for sunlight reading...and I believe it has a cafe attached on the main floor, too. Either one, though, is the front-runner, at this point. Hmm...
+
+### 21063329 ###
+
+> _Such a shame that it's probably difficult (especially given her interaction with social worker) to tell her that you're proud of her actions, which let's face it, any /b/tard would be of a super scalp-clutching ninja girl._
+
+Well, yeah. I am somewhat proud of her, for standing up for herself, and for kicking that little snot's ass...even if I'm not thrilled about her getting into fights, in theory, because of her 'handicap' (in the fighting sense). I mean, I don't want her to get hurt. And I'm not happy that she's emotionally hurt enough to be so over-aggressive, and it was over-aggressive...but...well, I'm conflicted, in any case. I'm not going to be telling her she was bad for doing so, anyway.
+
+### 21063490 ###
+
+> _any chance of a concert or anything?_
+
+I don't think anything's playing on sunday, and I doubt I could get tickets in time even if it was...
+OHSHI-! The city's orchestra plays, or rehearses, or something, on sundays! I remember a friend of mine mentioning something about this a few months ago. BRB, I need to call her.
+
+### 21064082 ###
+
+> _now that I think about it, a library might also have the advantage of a computer lab. I don't know how net-reliant a seven year old is, but after so many months she might want to at least check her email... then again she might not want to reopen that portion of her life, who knows.._
+
+I'm fairly sure it does, indeed, have a pretty good computer lab...might even be one specifically for kids, too. And yeah, I've considered that, too...if we do go there, I'll leave it up to her, of course, though I might mention that she could use one if she'd like to...
+
+### 21064409 ###
+
+> _Wow. Nice luck. She used the play and likes classical, right? Be careful that she won't take it as a reminder of something she can no longer do._
+
+Yeah, I'm considering that right now...my friend told me they do indeed rehearse on sundays, and it's open to the public (mostly), so it's a possibility for the agenda...the point you raise being a/the sticking point for deciding yes/no, of course...
+
+### 21064786 ###
+
+Welp, if nobody else has anything to say for the time being, I'm going to go make some dinner...might start up another thread later if this one dies in the meantime...guess we'll see.
+
+### 21066424 ###
+
+> _question; How is Amputan doing clothing wise? is she wearing her pre-accident clothes, or stuff provided by the hospital/nursing-home?_  
+> _How long has it been since she's had something new? (not in the style sense, in the "kids her age outgrow clothes fast" sense). Does she have any clothes that would hide her prosthetics without encumbering her?_  
+> _I know this kinda sounds stupid, but I'd hate to think she's been spending so many months in hospital-garb..._
+
+Geez. I leave for a half hour...
+
+To answer this first: She more or less just had hospital clothing, and a couple of shirts and shorts and such from family services. Though the family, when they showed up on christmas, brought a bunch of other stuff, too, including a number of new shirts, a couple of sweaters, some skirts...she hasn't worn the latter much, though she does like one of the sweaters my mom got her, in particular. Oh, and a long (well, it'd be short on someone else) nightshirt for bed, which drapes down just past her stumps, shortsleeved.
+It has little cartoon kittycats on it.
+
+### 21066714 ###
+
+> _and what happens when she tries to kung-foo grip a fully capable person? Judging by the kinds of people that tend to initiate these outburst, she might end up a quadruple amputee..._
+
+Exactly. This is why I'm not 100% for more loli beat'em'ups...she's been lucky so far. But even a single able-bodied girl her own age could beat her to death...eventually...if they wanted to. And there's really not much she could do to stop them.
+
+Besides the fact that it's simply not healthy for her to have such aggressive tendencies (literally: it's a symptom of PTSD), the fact is that she can't really back up her talk with her walk...no matter how much spirit she might have.
+
+I just hope the situation never comes up...
+
+### 21067152 ###
+
+> _I'm split between how I feel about you, Nurse-kun._  
+> _Mainly, why the hell did you have to go into so much detail over giving her a suppository? A tad disturbing, if you ask me..._
+
+Last time I'm ever going to say this: Satire. Joke. Intended for satirical amusement. /b/ is filled with fake stories about sticking it in little girl's poopers, so I added one more. Nurse, not a Writer, damnit, thus didn't get that across, I guess. Christ, people.
+
+### 21067914 ###
+
+> _Nurse-kun, what will you do if you're recognized by a /b/tard during one of these outings?_  
+> _Hopefully they would be smart enough to keep their mouths shut, but chances are they won't._
+
+Well, if they can't, I'll just have to give them an emergency trachiotomy.
+
+### 21067995 ###
+
+> _check if there's anything clothing wise that she wants. I know buying her stuff is a bit expensive, and probably not first-outing material, but any change you can get her to pick something out herself, you're reviving her sense of independence. That said, instead of asking anonymous what sorts of gifts you should get her for Christmas/Valentines/Whatever, maybe you should find some magazines or something and ask her what she wants herself._
+
+Clothes-shopping might be a later-excursion outing...it'd be a bit weird to do with her social worker, there, though. Though that sounds bad, typing that out, I don't mean it, like, I'd take her to Victoria's Secret or anything, just...hrm.
+
+### 21068150 ###
+
+> _I recommend you take her to a planaterium or movie. Although if there is some place where you can bring her where the Wheelchair wouldn't get in the way, that would be great too. A park seems like a good idea to me too._
+
+Hm, hadn't considered a planetarium. Haven't been to one myself since I was a kid. Food for thought...
+
+### 21068484 ###
+
+> _I doubt if anyone truly believes he was serious, it just makes for fun trolling, because of how we (his supporters), and nurse-kun himself respond. That said, his suppository story was a pretty stupid thing to reveal, knowing how certain anons would respond. We luv ya Nurse-kun, but you sure give your detractors ammunition at times..._
+
+I'm a /b/tard. If I was really smart, would I be in here? Be honest.
+
+### 21068800 ###
+
+> _It's nice to see my Waha idea went through - deeper meanings or no._  
+> _Also I back the bookshop/library idea._  
+> _More the Library idea - seeing as I work in one and therefore I think they fucking rock_
+
+Thanks for giving it to me! And yeah, I'm thinking library -> orchestra or planetarium at this point...that Build-A-Bear thing sounds nice, though I'm not sure how much she'd want to be surrounded by shrieking/giggling little girls, at the moment.
+
+### 21069408 ###
+
+> _you could try off peak times?_
+
+Well, I'll consider it for a future excursion. Not likely for this sunday though, you know? More likely for a weekday, which, yes, non-peak time. I can't just show up and haul her out of the home any time I like for any of this, though, people need to understand...it's structured, and overseen.
+
+### 21069818 ###
+
+> _you think she's really gonna go for a teddy bear? From your previous posts she sounds a bit too cynical for "normal" girl stuff (or perhaps just too mature?). I was under the impression that her attachment to her minibear stems from the fact that it was a gift from somebody who cares, rather than "Oh CUTE! a Teddy Bear!". but perhaps im just reading too much into it, haven't even met her after all._
+
+Well, she's not much of an 'OMG KAWAII' sort of girl, no. But...she still sleeps with the minibear, actually...it rests against her desklamp during the day and evening, but when she falls asleep, it's in the crook of her arm.
+
+Yes, it's probably due to an emotional attachment to it in particular...but she doesn't scorn things in broad sweeps, and her origami penguin army remains as well. Anyway, I wouldn't automatically rule it out.
+
+### 21070406 ###
+
+> _I was just thinking too. Could you possibly get her a pet? Something small and low maintenance, a Beta Fish sounds ideal._
+
+Hm, I don't think any of the other patients have pets, even fish...though that whole 'pets for seniors' is still a bit trendy in geriatric care, maybe I could convince them a 'easy maintenance fish for kids' policy would work?
+
+### 21070558 ###
+
+> _I've been meaning to say - you said she used to love Ouendan.. if I had someplace to send it, I'd send her my copy, unless she's still got hers._
+
+Her copy was found when I went to the storage locker to retrieve her DS, along with the rest of her games. She still plays it occasionally, and let me try it out as well...it was fun, since I enjoy EBA, though I think I prefer EBA, much better polished, and, um, I can understand it without her translating for me (which she did, it was cute).
+
+### 21070795 ###
+
+> _Take her to an Aquarium first, then surprise her with a Fish of her own a few days later. Explain to her what needs to be done to take care of it (Such as cleaning the tank and giving it exercise), don't offer to he;lp her take care of it right away but be ready to do so if necessary: I'm sure she'd warm right up to the challange and that it would be great for her sense of self-worth._
+
+It's not a bad idea, certainly, something to consider, but there's not much point if the home won't let her keep it/punish me for doing so. Something I'll have to look into.
+
+### 21070881 ###
+
+> _Whold she enjoy you taking her to something like a jazz concert?_
+
+She might. She played the piano, after all...though there's always the worry with the orchestra that I'm considering, that it might depress her, since she can't do it herself anymore... (I think? You can't play the piano with one hand and no feet, right? There are pedals and stuff?).
+
+### 21071003 ###
+
+> _A pet, even a low-maintenance one, might make things worse. It will eventually die, and we all know how attached kids get to animals. At this point I'd imagine it would be very hard to get over the loss._
+
+...shit, I didn't think of that. Like I said earlier, stupid...
+
+### 21071340 ###
+
+If I was going to get her something alive, I'd go with a plant. A little bonsai tree would be perfect, but like its already been said, too much Japanese shit is a bad idea.
+
+### 21071549 ###
+
+> _Beta's will live for a few years before they go belly-up. Yeah, sure though, lets shelter The Adopted Child of Legion and make sure that she never experieces anything that might make her cry again._  
+> _Even though she might have gone through something horrible, it's no reason to say that she shouldn't experience everything life has to offer: Both Good and Bad. Enjoying a pet and dealing with it's death is just one of those things. It's also pretty minor considering what she's already been through and what she will face in the future._
+
+Well, yes, I know that she can't stay inside a bubble for the rest of her life. Still, while it's fun to say 'stop being such a pussy' and suchlike, for a kid in her situation, it's hardly that easy. The fact that she's doing as well as she is is a blessing, and introducing something that could break that progress, even if that stimuli seems minor, is hardly a good idea.
+
+Still, several years? I'm not a fish person, so I don't know much of anything about them. Hm, well.
+
+### 21072030 ###
+
+> > _All I have to say about the outing is definitely get the girl something that isn't institution food. I spent a week in the hospital last year and that was MORE than enough of that *barf* I cant imagine six months plus of it._  
+> > _On an unrelated note, I am very moved by your story, as is a friend of mine. We are inspired, and we had the idea of creating a kinetic novel based on your story. I just wanted to ask out of courtesy if for any reason you would be against this, since its based on you and her._  
+> _I would really prefer that you didn't honestly. Sorry I'm not saying I don't appreciate the support but I'd rather not be overly publicized, 'based on a real sory' is the last think I want._
+
+Your style is impetuous, but it can't be mistaken for the real thing, my friend. Still, even so, I'd at least have to agree with my imposterous friend here in part.
+
+If anyone did plan on, um, Ann Ruleing all of this, I'd certainly appreciate at least seeing the product beforehand, but I suppose I'm sort of a public figure at this point, and my rights are somewhat impaired by my anonymity/air of mystery.
+
+### 21072791 ###
+
+> _Hey Nurse-kun, a sad thought, but have you heard anything about Amputee-tan wanting to cimmit suicide? I hope she won't be an emo kid, but she has every right to be, but that just seems to sad to me from a 7 year old. Also, I love you man, my first Nurse-kun thread I've left a comment in, but I saw the first one, a bit confused as to what it was._
+
+She has previously mentioned it, but recently she's been quiet about it. I hope this is a sign shes starting on her healing process. Mentally and Physically. (Yes - even though some things can't be fixed)
+
+### 21073148 ###
+
+This is...actually something I've been worried about for a while. I mean, how could I not be, really? Apparently, from the hospital gosspip line, there were a few incidents in the early days after the accident; IV lines torn out, nurses finding her on the floor next to her bed (once with her left shoulder dislocated), and most alarmingly, they once found her with her morphine drip's dosage turned way up past safe levels...seems she watched nurses and doctors adjusting it, and figured out how to do so herself. Nearly died that time, it was just luck that they caught her in time. Then something happened, nobody's sure what, and all those shenanigans stopped entirely, and she started working hard at the rehab...thankfully.
+I just hope it keeps...and that I can be helpful in providing he;lp for it to do so.
+
+### 21074700 ###
+
+> _Have you heard anything new on the adoption front? I know it's probably too early to actually go through the process, but I hope when she's ready you can take care of her. When she's not getting into fights with old dudes with Alzheimer's and crippled racist kids, she seems like a sweet girl and deserves some kind of parent in her life._
+
+...not yet. An afternoon is one thing, a lifelong commitment is another...
+
+### 21074740 ###
+
+> _JUst kind of throwing ideas out there, so yeah, never mind if they're complety stupid. `>_>`_  
+> _Perhaps, to he;lp with the frustration, you could get her some metal? I mean, probably not really heavy death or black or anything like that. Probably power or progressive would be good. Power and progressive are usually easier to listen to, and easier to get into. Well, not so much progressive, but mainly due to song length and complexity. However, you said she used to play at practically prodigy level, so theres probably a good chance she'd appreciate the complexity. But yeah, Dream Theater, Queensrÿche, Bind Guardian. All great bands._
+
+Uh, I'll consider it? I've never been much of a metal person, myself...
+
+### 21075557 ###
+
+> _I don't know if it's been mentioned but Classical Music expresses some very cathartic emotions depending on what you are listening too. I'd recommend some Jean Sibelius, He's From Winland!_
+
+Yes, she already has a fair amount of classical on her ipod, she likes classical...though she isn't snobby about it being superior, she enjoys other music, as well.
+
+> _get her some dragonforce or other powermetal like manowar... keeps her mind clean, and releases agression, coz I think people singing about hailing satan and mengele is not the best shit for 7yo wrecks._
+
+As such, I suppose I certainly can't rule out her enjoying metal of one sort or another...Lordi is the only metal I'm familiar with, because Lordi rocks, but as awesome as it is, much of it isn't terribly appropriate for her, I'd think. I've heard Dragonforce mentioned before, but no real detail about what they're like. They sounded a bit silly, I mean, 'Dragonforce'? Sounds like an 80s NES game.
+
+### 21076304 ###
+
+> _It's hard to find but I would recommend Corvus Corax's Greatest hits or Cantus Buranus , they can only be found online but they do authentically styled medieval Folk and reinasance music. Some of the pieces that they do are downright haunting and their work runs a wide and diverse range of evocative themes. If she likes Classical, I'm sure she'd Love it._
+
+I'll check it out, thanks!
+
+### 21076985 ###
+
+> _Holy Crap, Nurse-Kun, let me talk to you. Seriously. Do you have anything to talk by via IM? Please, I'm serious. I'll give you an email to securely send the IM info. I'm not a troll or dick, I'm SERIOUS BUSINESS._  
+> _Except for the pic. That's unrelated._
+
+Er, I'd rather not, no offense intended...I'm not much of an IM person in the first place, and I'd prefer to avoid outside interaction, my cautious side speaking to me, I guess. What's this about, anyway? This is /b/, I doubt there's anything you can't tell me here.
+
+### 21077183 ###
+
+> _Sup Nurse-kun. On the subject of music, maybe some techno?_
+
+You know, she drew another bad hand in me...sort of...since I'm not much of a music person, and she is. She could certainly have done better with someone that has an ear for it, or at least a larger breadth of knowledge on the subject. Ah, well. Is there a particular techno album to recommend, or...?
+
+### 21077697 ###
+
+> _Ok, it's your choice, and I respect it. It's just that I'd like to just talk to you, without annoying waiting-for-the-post-then-waiting-a-while-for-you-to-replyness._  
+> _Yeah, I also don't blame you for not trusting me, this is /b/ after all. It's just that I was there with your first thread, and I wanted to chat. I know it's stupid, but what are you gonna do?_
+
+Well, like I said, I'm not much of an IM person, anyway...are there any programs as anonymous-friendly as /b/ is?
+
+### 21078130 ###
+
+> > _introduce her to the first season of rozen maiden._  
+> > _if i was a little half-japanese loli, i'm pretty sure that would brighten my day._
+
+> _Bad idea. Remember the whole Sugintou "junk" scenes?_
+
+Well, I like to think she's rational enough to know the difference between herself and a doll, but she's also a kid, and with an active enough mind to really think about it...too much, really.
+
+Which would be the main reason I've thought it might not be a good idea, should I start piping in animu on my laptop or something.
+
+### 21078474 ###
+
+> _IRC + Proxy_
+
+I'm not too l33t, so my worry would be that I'd either a) mess up the proxy, flashing the world my sundry sundries, b) not do the proxy well enough, letting people tear it/them down, or c) wind up in federal pound-you-in-the-ass prison.
+
 <a id="chapter16"></a>
+## Part 16 (February 25th, 2007) ##
+
+
+### 21189404 ###
+
+Hey, /b/. I know it's only been a couple of days, but people seemed interested in today's 'fieldtrip', so I thought I'd let you know how it went. If I'm somehow detracting from your pleasure in partaking of all the other amazingly high-quality threads, please, feel free to hide this.
+
+Anyway, the day had finally come, that she could actually spend some time outside of a hospital, a nursing home, or a rehab facility (which is technically part of the hospital). I mean, think about it; she literally hasn't been outside of one of those three places, unless you count the time spent in a handi-bus being shuttled to and from one or the other. Which, considering being in a motor vehicle triggers her PTSD, is hardly a breath of fresh air. Kind of makes being in for a few days to have your tonsils or appendix or something else taken care of as a kid in perspective, huh?
+
+### 21189916 ###
+
+Anyway, I showed up at the home, the designated meeting place, before noon, leaving my vehicle parked in my usual employee's spot despite not technically being there on business, and headed inside. I headed for my usual wing, and found her day nurse at the station, and we chatted a bit about this endeavour. It is, after all, a rather unusual one, but the rest of the staff does have to admit that she's in a rather unusual situation, too...it's my hope that I can kind of inspire some of the others to consider doing this as well, but I can't expect too much, of course. They do have lives of their own, after all...everybody does, which is why kids like her wind up being forgotten and abandoned in the system in the first place, really.
+
+Anyway, I headed for her room and was met with her already sitting up in her bed, dressed in the sweater and a t-shirt my mom had gotten her for christmas, and the pair of pants she'd asked me to pick up for her friday night, which I'd delivered on saturday...she was wearing her legs, you see, despite having to use her chair. I suppose she figured that being stared at for being in a chair was bad enough...having people she doesn't know staring at her stumps would be worse.
+
+### 21190679 ###
+
+She hadn't yet donned the pair of boots I'd picked up as well, which was understandable, and it was impressive enough that she'd managed to get her legs and the pants over said legs on by herself as it was. So I helped slip them on, which was a bit of a challenge considering the dimensions of the feet, and tightened the laces at the top, while I told her that I thought she looked very nice, and that I'd try and make sure she had a good day. Sitting on the edge of the bed, I helped her put on her jacket, then helped her into her chair...and we headed for the front doors, where the social worker was already waiting.
+
+She'd just arrived a few minutes earlier, more or less on time for the rendevous, and carrying a briefcase, apparently intent (as it later turned out) on getting some work done while she kept an eye on me. I suppose, in hindsight, the fact that she didn't think she needed to watch me like a hawk with her full attention is a compliment, really. In any case, the family services van was waiting outside, so out we went.
+
+### 21191094 ###
+
+The guy driving helped me load her up inside, with the assistance of a little crane-lift like they have on some buses, and I took a seat next to her in the back, while the social worker sat up front with him. And off we went! The first stop was the central library, which was about a half hour away, the hospital/home/etc being out in the residential part of town, and it being downtown. Fortunately, traffic was light, so we got there without too many complications...which was good, considering our poor girl had her eyes shut and my hand squeezed in her good one as tightly as she could, her iPod on loudly enough to block out traffic sounds, and a look of...pain, almost, on her face the entire time. As if terror when she was sleeping wasn't bad enough.
+
+We finally arrived, the driver helping us unload out front, then heading off to find a parking lot to wait for the pickup time. She slowly began to recover as soon as the vehicle had stopped and the side door opened, and had mostly calmed down by the time I wheeled her in through the front door.
+
+### 21191548 ###
+
+I'd called ahead to explain her situation, and ask if they had anyone working there that had experience with similar ones. As it turns out, there was indeed an older woman there that handled class trips, organizations (boy scouts, girl guides (which it turns out she'd been previously, if casually), etc), and suchlike. She met us at the information desk on the main floor, introduced herself to our girl, then asked her if there was anything in particular she liked to read. She was a bit reserved in her answer, not really giving much in the way of helpful responses; the woman seemed to take this in stride and suggested that perhaps she'd like to browse through the young adult's floor and see if there was anything she liked, to which she nodded, and off we went.
+
+Thus followed an hour and a half of nomadic roaming through bookshelves and aisles, with occasional breaks to peruse interesting items in sunlit reading areas. She got a few stares in the course of this, which left her looking uncomfortable and unhappy at first, but she eventually just stopped trying to catch what other people were looking at (her) and focused on her own interests, which gave me a surge of pride.
+
+### 21191679 ###
+
+> _I'm afraid our fanboy zealousness has frightened our dear Nurse-kun away..._  
+> _In any event, lets salvage the remaining thread with Azumanga Daioh porn, yes?_
+
+If you feel the need to post it, go ahead, but I'm not done just yet.
+
+### 21192034 ###
+
+Time passed more quickly than I'd thought it would, with her social worker drifting along behind us half the time, observing, and working on reports and other paperwork in a reading area the rest. Before too long, we had a basket of books and an appetite, so we headed back downstairs, to the cafe attached to the main floor of the library. It's not half bad, with freshly made sandwiches, soups, and baked goods; for her, it seemed that it was like a gift from heaven, considering the catering quality of the places she'd been living for months on end. She ordered a bowl of vegetable soup and a turkey sandwich; while she didn't hoover them down (she has very good table manners, really), the relish with which she ate was a marked contrast to the times I've seen her eat the food at the home, when I'd worked days there.
+
+She only finished half her sandwich, but all of her soup, so we had it wrapped up, along with some cookies from the baked goods section, and headed out to rendevous with our transportation again, to head for the city's orchestra HQ.
+
+### 21192552 ###
+
+I'd discussed the possibility of going to watch them rehearse with her yesterday, and on friday night...because, as we'd reasoned, she might not want to watch people doing something she can't anymore. Which, yes, I know she sort of has to do quite often, but...still. We'd had a fairly lengthy (well, for her) conversation on the subject, going on for nearly a half-hour, but in the end, she told me: "I'd been around music, and people that make music, for as long as I can remember...I miss it.".
+
+Well, that was that. Even if she also admitted that she was...sad...that she couldn't do it anymore, it seemed that it wasn't enough to deter her, at least as far as she reckoned. So, off we went, the orchestra's home only being five or six blocks away, a mercifully shorter trip for her, particularly since she's had a tendency to get sick if she's eaten and riden since the accident as well, despite not having such problems before it. She managed to hold it together (well, she didn't enjoy it any more than the first ride, but it didn't go worse, either), and we were soon at the steps of the hall. Fortunately, the building had been upgraded to be handicapped accessable when one of the conducters had suffered a stroke (so I heard when I checked it out yesterday) in the mid-90s, so we headed up the sloping ramp and inside.
+
+### 21193274 ###
+
+The person in charge of handling the public that comes to watch met us there, and...actually recognized her. He looked somewhat shocked, and turned a bit pale when he saw her, and swiftly moved to direct us to our seats...it seems that her family had been perrenial season ticket holders. She hadn't mentioned that to me before...but it did explain a few things, once she mentioned this while we were taking our seats. Anyway, they soon started up, so we hushed ourselves, and listened. She was particularly intense, as much as I've seen her, anyway...
+
+They played through three or four pieces before it happened; she leaned over toward me, which I noticed enough to lean in as well, then whispered, looking unhappy, that she needed to use the washroom. Her social worker heard this as well, and a perplexed frown crossed her face...since she wasn't sure how to handle this.
+
+### 21193344 ###
+
+> _did you discuss your planned locations with her shrink before hand, or did she pretty much write you a blank check?_
+
+Yes, I had a talk with her about them. She gave her approval on them.
+
+### 21193748 ###
+
+Generally, kids can use the washroom themselves, or if they need he;lp, can get it from the chaperone, since the mentor-type isn't generally 'qualified' to do so. However, in this case, she, the chaperone and social worker, wasn't qualified to he;lp her, while I, the mentor-type, not only was, but did so professionally...for this specific girl, no less. You could almost see the gears turning in her head as she mulled this over; when our girl repeating her request a bit more urgently after ten seconds or so, her worker finally sighed under her breath, almost visibly having given up on her computations, and gestured for me to go ahead. So I quickly wheeled her out of her spot beside the aisle, and out into the lobby, heading for the women's room...figuring that I'd get away with that more easily considering my professional status and situation, and figuring taking her into a men's room would invite way more trouble than the alternative.
+
+I helped her with her problem, which was somewhat more problematic in and of itself than as usual at the home, due to her additional clothing and weight/mass from her legs; still, we achieved great success (wawaweewa), and while I was helping her clean up and get dressed again afterwards, she started crying.
+
+### 21194449 ###
+
+I asked her what was wrong, being rather concerned, as is only right, and she couldn't answer at first, trying futily to keep up with her tears with her back of her good hand and her sleeve, while biting her lip and trying to keep from getting any 'worse'. Seeing her in this state, I could only do the first thing that sprang to mind...which was to shift my position to take a seat, and hold her (yes, in my lap) comfortingly, murmering that it was all right, asking her to tell me what was wrong, soothingly; upon which she just started sobbing, and buried her face in my shoulder, clutching at my sleeve with her good hand. ...thank god the bathroom was empty.
+
+She kept up like this for nearly five minutes, heaving and sobbing, and getting my shirt rather damp, before she finally started calming down again, slowly. I started telling her how sorry I was, that I shouldn't have brought her here...not being a complete dunce, it seemed obvious what the problem was...but she spoke up, though still muffled and choked, sniffling, to tell me not to apologize. I offered her some kleenex, and helped her dry her face and blow her nose (which was running by now, of course), and she was quiet through it all, just looking down at the floor, refusing to meet my eye with her own.
+
+### 21194945 ###
+
+After a couple minutes more, when I finally spoke again to ask her if she was feeling all right and that she was sure she wanted to go back out there, she nodded slowly...and I lifted her in my arms as I stood up, then helped her into her chair again, adjusted her coat and boots slightly, and wheeled her back out again, to wash our hands (we just made a threesome out of it beneath the tap), then headed back to the seats and the orchestra.
+
+Her social worker gave me a look when I helped her settle in again at being gone so long; I leaned in toward her, and whispered 'mini-breakdown, she's feeling better now'. She seemed to consider this for a moment, looking at her, as she stared at the musicians on the stage silently, then finally nodded and leaned back in her seat again.
+
+### 21195531 ###
+
+The orchestra wrapped up after another twenty minutes, with what I actually managed to recognize as The Magic Flute (yay grade school music class), and they started to pack up, with the fifteen or so other people in the audience beginning to file out. A few stared at her as they walked past, which just led her to look down at the floor again, so I stood up and interposed myself between her and the aisle, leaning over her to he;lp her put her jacket on again for the trip outside. While I was doing so, I whispered to her, the noise of people trodding past probably making it just between us though it wasn't really planned that way, "You're braver than any of them, and cuter, too.". I really wasn't sure what to say, but felt I had to say something to try and cheer her up, so that's what came out. And it seemed to work, too, as she looked up again...and gave me a little ghost of a smile.
+
+Feeling a bit better (or less worse) about the whole thing, I helped wheel her out into the lobby again, the social worker calling our driver to come pick us up, and we were soon loading up for the last stop of the day.
+
+### 21196308 ###
+
+Even feeling not as bad as I was, I was a bit unsure about the last excursion of the day. Still, we had another hour before we needed to head back to the home, so it seemed wrong to waste her first time out of there. So off we went, heading out to the edge of the downtown, to the science center/planetarium. I'd checked into it ahead of time, and found they were running a program for sundays, so it'd seemed like a good idea at the time. Still, she had to have been there before as well (on a fieldtrip if nothing else), so after the incident we'd just been through, I was feeling somewhat unsure of myself.
+
+Holding her hand on the fifteen minute trip over, and her holding mine...somehow less tightly, but more closely, if that makes any sense, than before, I decided that I could only keep a brave face on it all rather than show any of my worries, for her, if nothing else. We arrived and were soon on our way inside...
+
+### 21196856 ###
+
+Anyway, that descent into emoness aside, it was fun, taking us back to the pleasentness (sic) that was the first part of our outing. We browsed through the various minor exhibits of interest, including the current 'big thing', an exhibition of NASA gadgets and suchlike. She seemed quite interested by all this, and managed to answer the physics quiz for computing reentry on her first try, after only a few seconds of thought. I was certainly impressed, considering I barely got through the first stage of the math...IS HARD.
+We eventually headed into the planetarium section of the building for the constellation/laser/light show, and spent the next half hour being bombarded with a stoner's wet dream, and, I fucking kid you not, a certain song from the Rolling Stones at one point...to which we both laughed, then started singing along with quietly together, to a slightly puzzled look from her social worker.
+It was a gas, gas, gaaaaaas...
+
+### 21196965 ###
+
+> _FUCKING BURN THIS ISN'T NURSE-KUN_  
+> _THIS ISN'T HIS WRITING STYLE_
+
+Well, you could've fooled me. Shit, am I actually some sort of wealthy playboy with a hot date tonight? Damn, what am I doing in here, then?
+
+### 21197477 ###
+
+The pleasentness (sic) continued as we headed out of the light show and stopped by the in-house restraunt/cafeteria. I asked her if she'd like anything to spoil her dinner, and we went past an assortment of not particularly healthy kids-friendly food.
+
+Then we got to one sort in particular, and...well, my /b/ness took control, and I couldn't resist. I asked her if she'd like a slice, since they didn't make it at the home at all, and we were already here...and she said, looking slightly distressed (which I felt bad about, but it was too late by then), and I quote: '...no. I don't like pizza.'.
+
+### 21197941 ###
+
+> _Nurse-kun, when you type this stuff up before posting, do you save any of it? Wikichan is still missing your Christmas thread, it'd be great if you still had a copy of what you posted..._
+
+Er, no, I type it up on the fly, I don't save any of it. And nothing really got posted on christmas that I haven't mentioned here...my family swung by and met her, gave her some extra presents, it was nice, though she was a bit overwhelmed and flustered, and not terribly personable, which is understandable...but it was nice. She told me later that it was the first time so many people had come to see her since the accident without feeling obligated to, then leaving 'grossed out'.
+
+### 21198081 ###
+
+> _I hope you laughed._  
+> _I would have._
+
+I fought hard to keep from doing so...and barely succeeded.
+
+> _lol. And this is the line the entire hoax was leading up to. j/k_
+
+I swear to GOD that I'm not making this up...she wouldn't have even mentioned it if I hadn't brought it up, which I did due to my /b/ conditioning...besides, not every kid loev pizza, right? I mean, some of them have to haet it...
+
+### 21198468 ###
+
+Barely managing to control myself, I nodded and said 'Well, that's okay. How about a hamburger, then?'. That was somewhat more agreeable to her, and we picked up a burger and fries, and got it packaged to go, then headed back to our ride, who was already waiting on us. We all climbed up and inside, and were soon on our way back to the home, my hand in its usual place clasped within her own (well, hers squeezing onto mine, it not being big enough to really clasp it within or anything). It took ten minutes longer to get back than it took get get out earlier, which wasn't fun for her, but we did get there eventually, and when the van stopped and the social worker and driver were getting out, she told me that she felt better riding with me than she usually did.
+
+We were soon back inside the home, with me carrying a backpack filled with her books, her doggybagged half-sandwich, and her fast food, which I would smuggle past security (seeing as official policy is to frown on outside food). I thanked her social worker for making this happen, and she offered a slightly tired smile in return, telling me that she thought it went as well as could be expected, and that it was a 'good first step'. Then she bid our girl goodbye, saying that she had a nice time with her today, and waved out, getting a ride from the driver back to her office.
+
+### 21198767 ###
+
+> _Whatever happened with that girl you were going to ask out? Nothing?_
+
+I asked her out, she said she already had a boyfriend, but that I was 'nice'. Didn't really strike me was worth mentioning.
+
+### 21199215 ###
+
+I wheeled her back to her room, pausing to greet her afternoon/evening nurse on the way, then helped her inside, and out of her chair and onto her bed. I then unpacked her meal onto her bedside table, whereupon she started eating french fries and watching me while I removed her boots. I asked if she'd like to keep her legs on a while longer, or if she was ready to remove them for the evening. She seemed to think about this for a few seconds...then said she'd like to keep them on...that she'd 'liked having them for more than an hour' again.
+
+That done, I pulled up her room's chair and had a seat while she ate some more fries quietly, unpacking her books for her, and telling her I'd put her leftover sandwich in the fridge, and make a note that they could include it in her breakfast or lunch tomorrow, perhaps. It was then that I noticed she was trying to get a grip on the burger (which was pretty big for a kid, more adult sized) with her good hand and her prosthetic, with the latter failing pretty miserably at the attempt...
+
+### 21199528 ###
+
+> _Speaking as a female (yes, yes I know - no girls on interbutt, tits or gtfo etc) I think that the level of love and dedication you display by helping this girl so devotedly is a great display of character and fairly attractive. BUT if and when you do become her legal guardian and someday perhaps choose to find yourself a girlfriend/wife/whatever, is there a risk Amputee-chan will feel jealous and possessive, or worse still, betrayed?_
+
+Well, that's a risk I'll have to take, and work to try and he;lp her heal to the point where she can avoid it.
+
+### 21199953 ###
+
+I waited a moment, not sure if I should...then finally smiled casually, and asked her if she'd like (not require) some he;lp, then jokingly said that it wouldn't do to stain her (prosthetic) hand, making it a matter of convenience, rather than need. She looked a bit embarassed for a moment, then nodded, saying "Please.". She does have good manners (when she isn't upset), after all.
+
+Thus followed my holding the burger, and her taking small bites from it, which, well, was as cute as it sounds, in a non-creepy (I like to think) way. This continued on until she'd finished half of it (like I said, it was adult-sized, and she'd just eaten about three and a half hours earlier), and half her fries, and she leaned back on the bed, supporting herself with her arms (which she's gotten good at, using her prosthetic arm as a support beam), and announced that she was full, and could I please take her pants off.
+
+### 21200816 ###
+
+Okay, just kidding. She actually said that she was ready to remove her legs, and could I please he;lp her? To that end, I did, in fact, remove her pants, helping her lay down first so she could lift her hips to facilitate said pants removal, then I moved on to her legs, 'unhooking' first her right from its liner and slipping it off, then the left...setting them aside, then slipping her liners off as well.
+
+I gave her a small massage to he;lp with adjusting to the change, then helped her sit up again, and tugged her sweater up and off, leaving her in her t-shirt. I folded and put away her things in their usual places, and asked if she'd like me to refridgerate the burger for later as well (which she did), then kind of fiddled aimlessly about, not sure exactly how to 'end it' for the day, not having been in the position before. She took her turn at saving me, then, speaking up abruptly as she leaned forward and hugged me suddenly, (I was still kneeling beside her bed, in front of her), and told me she had a nice time, thanking me for doing it for her...
+
+### 21201429 ###
+
+(And, uh, just for the record and the mods, **she was in fact wearing underwear, and I did not ask her to remove MY pants**.)
+
+Anyway, I gave her a small, friendly hug in return, and told her that I'd had fun too, and hoped we could do it again some time soon. She let go after a moment and I released her as well, then, moving to stand up, she looked up at me, and smiled. It wasn't forced, or unusually large, or tinged with anything negative that I could discern...it was just...a smile. Still, coming from her, then, it was one of the most beautiful things I'd ever seen...for what it meant. So I smiled back, trying to give her an idea of what I was feeling as well, happiness...and reached down to pat her head gently. "Have a good night, and sweet dreams, <name here>...I'll see you tomorrow." She nodded, after a moment, and offering one last brief grin, I collected her half-sandwich and burger remains and left the room, dropping them off in the staff fridge after I spoke with her shift nurse and left her a note to give to the morning nurse when catering delivered the morning meals. Then...I went home. And here I am...hopefully not about to be v& for a completely legal day out, Zack Breyered by 4chan's own mods.
+
+### 21202114 ###
+
+> _So Nurse-kun, outlook on future excursions is looking good?_
+
+Whew. That took longer than I thought it would...I need to do some Mavis Beacon or something. Maybe kill some zombies with typewriters. Ah, well.
+
+To answer this question: Yeah, it's looking pretty good, I'd say...as the social worker herself said, she thought it went well and I did well; she...my girl...said she had fun, and demonstrated a willingness to do it again...and I have the will, I'd think is obvious. I can just keep my fingers crossed, really.
+Also, I suppose I can say it here, just as well as anywhere else: Questions? Ideas? Hopefully not v&ings?
+
+### 21202290 ###
+
+> _Nurse-kun, I love you from the bottom of my heart. Im currently a pre-med student here in Michigan and spend a lot of my time volunteering at my local Detroit-Mercy Hospital and the Childrens Hospital. What you're doing is truely something to be emulated by the rest of society. Not going out of our way or spending every penny we earn on a cause (even though that is fine too) but rather, just doing what we can to he;lp someone else as much as we can._  
+> _You have taught me that Id rather donate my entire life to ONE cause, ONE person, or ONE reason rather than jump from one direction to another. You're truly an inspiration for me._  
+> _`<3` Nurse-kun_
+
+Wow. I...well, I'm honored that you'd think I'm worth anything, let alone being an inspiration. Seems to me that it's a good philosophy to have, in this big bad world where we can't possibly he;lp everyone, or do everything...we CAN do something, if we focus our mind and our will on doing it.
+
+It's just a matter of the will to act, which I like to think any of us have the potential for within us. Which I hope I have within me to keep me going.
+
+### 21202383 ###
+
+> _I was more referring to the sage spam than the pornography. Oddly, I accept the pornography as part of /b/ culture and expect it to crop up any time and any place._
+
+For the record, I don't have a problem with the porn either. And not just because Yomi is erotic. (Yes, Nurse-kun thinks Yomi is erotic)
+
+If people want to post non-horrific porn in these threads, hell, feel free. I mean, I'd rather not see a random string of pornstars filling them up, but it's not like I'm going to be 'lawdie lawdie me!'ing, either.
+
+### 21202597 ###
+
+> _Hey, was the email that was posted in the last thread really one that you made, or the product of some other asshole?_
+
+I don't know anything about that.
+
+### 21202624 ###
+
+> _Hey nurse-kun, were you really a boy scout? I made Eagle 5 years ago lol._
+
+Well, yeah, I was, briefly. Well, for a few years, anyway, but I wasn't too into it past 12 or so.
+
+### 21203063 ###
+
+> _My suggestion would be, sonsidering the amount of time that she has spent inside lately, that she might like to get out into like, actuall outdoors. Is there perhaps a nice nature route or even a path near a lake or something anywhere nearby that a wheelchair could possibly access? Taking her to an actual park would be a big NO, because it would probably just be a reminder of things she can no longer do (swings, slides, etc). I just think it would be a good thing for her to possibly get some fresh air?_
+
+Yes, this is certainly a consideration. I mean, I've thought about a lot of various outdoor things she might like/be able to do, and I'm still weighing various options, and looking, now that the first excurious went well, for weather forecasts suggesting a nice day on a future arranged outing.
+
+### 21203643 ###
+
+> _So did the guy at the orchestra know about what happened to her family? I'd assume not, given his reaction. Did you talk to him much or at all about that?_  
+> _Also, do you think it'd be worth trying to go back to see the orchestra again? Probably not next time, but at some point. It seems like it stirs up a lot of unpleasant memories and emotions but would she be able to get past that at some point?_
+
+He didn't discuss it, but he certainly seemed to recognize her...I mean, I'd informed him of her physical condition (but not her name or description, just 'a child's' condition, so he knew what to expect with her, physically...and you know, she's not, like, HORRIFIC. Yes, the scarring over her eye is disfiguring but not Bikko-twisted horrible, and it isn't as though he could see her stumps, or the scar on her chest or back...something had to provoke that reaction, and as I said, as she told me later, her family were season ticket holders, and he was one of the guys that handled guests and such, so...mm.
+
+Well, yes, I'm sure she'll be there again someday...soon, or far away, I'm not sure at this point.
+
+### 21204679 ###
+
+> _I'm an educated /B/-tard, and since you mentioned that your charge is interested in Science, I've got a buttload of NASA-related stuff. Would the girl be interested in that, and if so, how could I get it to you?_  
+> _Likewise, I'm looking to dispose of some of my anime posters, so she's welcome to those, as well._
+
+I'm not sure, and with people posting me on myspace, and rumors/jokes about the mods sending my IP to the feds, etc (which, while I haven't done anything illegal, but have written socially unacceptable joking things on the Breyer Board, will still fuck up my life damn good, and certainly remove me from hers, which since I don't intend to ever harm her, I think would be bad as well, but hey), I'm a bit leery of setting up some sort of contact with a stranger, you know? Besides, suddenly dumping a buttload of NASA-related stuff onto her would be weird, raise eyebrows. Sorry. Maybe in the future?
+
+As for the posters, I'm not sure about that either, but the only thing on her walls right now is that samus picture of her, and she hasn't been interested in other decorations...
+
+### 21204720 ###
+
+> _This is sort of unrelated, but earlier in the thread, someone else was talking about her possibly being able to learn how to play french horn, as it is an easy instrument to learn to play one handed, despite a really steep price. This is just a suggestion, but harmonicas are actually relatively easy to play one handed. I know it isn't as elegant as a violin or anything, but it is still music, still fun, and would give her something nice to do in her free time. Plus, harmonicas can be bought for pretty darn cheap._
+
+Hmm, not a bad suggestion, nor was the french horn (for the future, perhaps)...I'll have to take it under consideration.
+
 <a id="chapter17"></a>
+## Part 17 (March 6th, 2007) ##
+
+
+### 21723074  ###
+
+Hey, /b/. I know it's been a while, but it's been another busy week, so hopefully you can forgive me (or have been happy) for my absence. A few personal things have happened that've been taking a lot of my free time, which I'm not going to discuss here, but I did make time for her as well, with another afternoon out yesterday.
+
+While there wasn't anything to match her statement of position on pizza, there were a few lulz to be had at the zoo, and at the movie theatre too, amongst others.
+
+#### Response 21723301  ####
+
+Is this real nurse-kun, /b/?
+
+### 21723447  ###
+
+Anyway, it's five o'clock, and time for the news. After the success of our initial foray into the city, a follow-up trek was scheduled for monday (yesterday, not last monday, clearly). I considered the array of options from which to choose, checking weather forecasts and assorted websites for further information, and while distracted by those personal issues I mentioned earlier, managed to cobble together a schedule for her social worker's approval.
+
+And so it came to pass that I found myself in the home during the day once again, knocking on her door to announce myself, and finding her already 'dressed' this time, arm, legs, and all...well, except for her boots, again, which I quickly helped her with. We'd discussed the previous venture through the week following it, and she'd said that she'd definitely enjoyed it, so she was clearly looking forward to the day's events. Not quite with a normal kid's giddy excitement, mind, but for her? Close enough.
+
+#### Response 21723680 ####
+
+it's not him
+
+### 21723765  ###
+
+While we were waiting for her social worker and our ride to arrive (my having shown up early to take care of preparations), I helped her don her jacket, which was still in her closet, and helped her into her chair, then presented her with a little gift I'd picked up on the way over. Telling her that since it was still a bit chilly outside, and that I'd be remiss in my duties if I let her catch a cold, I reached into my own jacket and produced a maroon beret and matching scarf and light gloves, then placed them upon her head, around her neck, and on her hands (real and artificial, to retain symmetry and avoid attracting undue attention) respectively. She'd looked somewhere between surprised and pleased upon seeing them, and the latter grew when I picked up her tabletop mirror and held it up for her to inspect herself, with her reaching up to adjust the beret a little, then nodding her approval.
+
+#### Response 21723822 ####
+
+IT ISN'T HIM!! nurse-kun always introduces himself instead of just POPPING in out of nowhere. the writing style is also slightly different.
+
+### 21724170  ###
+
+Anyway, with a few more minor preparations taken care of, we headed out to the front lobby, waiting there a few minutes and doublechecking her backpack o'stuff to make sure nothing was left behind, her social worker being a few minutes late as she was. Roughly ten minutes, as it turned out, with the two of us heading out through the doors as the van pulled up and she stepped out of it, offering a short apology and claiming traffic woes.
+
+Before much longer, she was loaded up and inside, with my taking my now usual seat beside her, hand in hers, her iPod in place and on, and off we went. The zoo was on roughly the opposite side of town, so it was a longer trip than in our initial foray, and she kept her eyes squeezed shut (though just one would do it, it'd look somewhat creepy, and it's harder to keep one shut than two, after all) and my hand squeezed tight all the way.
+
+#### Response 21724394 ####
+
+OP, stop soiling the good name of nurse-kun, you fucking son of fuck.
+
+### 21724838  ###
+
+It took us about an hour or so to get there, even with the reduced traffic through the downtown core for that time of day (before lunch). But it was worth it was we drove into the vast parking lot, up to the handicapped spots near the tunnel that leads into the park itself, and she opened her eyes again. We quickly rolled out of the van, the driver promising to be there to meet us at the appointed time, and the three of us began heading inside.
+
+She was clearly moved by being there again, and after a period of silence as we rolled through the tunnel and past the subway station contained within, she spoke up, quietly mentioning that she'd last been here <date a couple of weeks before the accident>, then went silent again.
+
+### 21725138 ###
+
+Christ, is this all the same guy, or am I missing a joke here? I mean, I wasn't even really aware that I had a writing style, other than terrible that is, or that people had somehow committed it to memory, becoming Nurse-kun scholars, hanging with the Chaucer and Shakespeare-fags in the cafeteria.
+Is it something in the air, the phases of the moon, or just the usual /b/ickering dickery? I honestly can't tell. Ah, well. On I go.
+
+### 21725465 ###
+
+And for the record, I have in fact used the word "lulz" in these threads at least once or twice, though I can't remember the exact location(s). _[not true --ed.]_ Used jokingly and often in reference to a 4chan 'thing', of course, because I can't see someone using it seriously, much like I used it here. Anyway, moving on now.
+
+### 21725811  ###
+
+Putting this douche/b/aggery aside, back to the story, then I can get out of here.
+We got to the gates shortly thereafter, while I was trying not to think about what she'd said too deeply, lest I spend the whole afternoon comparing myself to her parents, and it to her previous visits here, and a whole host of other worries. I'd called ahead to check on whether any schools or groups were visiting that day, only deciding on it once it'd been confirmed that, no, it'd likely be a 'low-traffic' one.
+
+After paying to get in (and getting a 'special visitors' discount...lucky!), we headed into the park itself, and began making the circuit. The new african enclosure was the first place we headed, being close to the entrance and self-contained and heated, the hippos and giraffes being a hit, as she actually began to perk up a bit, and began recounting factoids about the various animals to the two of us; interesting ones, too, stuff I hadn't heard before, though I admit that I'm not an avid Animal Planet viewer, either.
+
+### 21726190  ###
+
+Moving on (after my 'Jesus christ, it's a lion! We need to get back to the van!' just drew a couple of puzzled looks from the two of them, thus proving that memes rarely achieve life outside the interbutt), the nocturnal house was cut a bit short by an anxiety attack, despite my asking her whether she was sure she wanted to head inside in the first place, knowing the problems she's had with darkness. Fortunately, it wasn't a monumental one, and once we got back outside, she calmed down relatively quickly, and we headed for the botanical conservatory instead, where colorful birds and fish and plants and such cheered her up again, and we sat down to eat lunch, as well.
+
+#### Response  ####
+
+That >:3 joke is beyond belivable. I was debating if it was nurse-kun or not, and now I'm sure it's not. Your writing style isn't detailed enough, contains too few direct quotes from teh loli, and lacks a certain critical level of introspection about your choices and actions that makes the nurse-kun threads so enjoyable. Nurse-kun is a true /b/tard at heart and has never been particularily rushed or abusive to his audience. He also seems to strive to be professional whenever he's in a working enviroment. If this really is nurse-kun you have my appologies, but otherwise, fuck off.
+
+tl;dr - I'm waiting for the next of these threads because I think this one is fake ;_;
+
+### 21726939  ###
+
+We moved on from there, with the monkey house roughly as pungent as I remember it being from my childhood, and the Eurasian section was popular as well, particularly the bears and tigers. It seems she'd had a cat, which explains somewhat why she'd watched said tigers, and the lions as well, despite my jackassery.
+
+We finally finished the circuit and began to head out again, makingn a stop in the gift shop to pick up one of the small-sized stuffed lions they had for sale there (the me-sized one seemed somewhat excessive).
+
+#### Response 21727094 ####
+
+why would she have a tabletop mirror? she's got PTSD and serious self image issues... you'd think her shrink would ban that sort of thing... I call shinanigans.
+
+### 21727101 ###
+
+Yeah, fine, whatever. Clearly, I'm not really me, because I'm actually some sort of saint-like being that doesn't get annoyed or tired or stressed out, and wouldn't ever think to himself 'Christ, I might as well just stop in the middle with all this bullshit, because it's not worth it.'.
+
+### 21727484 ###
+
+Fuck it. Maybe I'll be back in a few weeks, maybe not. I don't need this shit right now, as I suggested in my first post and people seemed to ignore completely in favour of somehow saying I don't measure up to myself. Congrats, the spammers can't do it, but you people can. Outta here.
+
+#### Response 21727665 ####
+
+>completely in favour
+
+Wait...since when did Nurse-kun spell with Queen's english?
+
+### 21727722 ###
+
+Um, real Nurse-kun here. I can only say, you guys are surprisingly good at analyzing my writing. I'll be back with an actual thread in a couple of days.
+
+> _This was actually me. --Shii_
+
+### 21727811 ###
+
+LOL, another fake comes in to back up the fake. I guess the Spirit of Nurse-kun is alive in all of us.
+
+### 21727899 ###
+
+You aren't the real Nurse-kun, I am! *pushes 21727722*
+
 <a id="chapter18"></a>
+## Part 18 (March 26th, 2007) ##
+
+**(This thread is entirely fake.)**
+
+### 03/26/07 (Mon) 20:11:31 No.23023442  ###
+
+Hey /b/, it's Nurse-kun here. It appears /b/ has changed quite a bit since my last post. I've decided to take a trip code for myself so I don't get impersonated like what happened with that last thread. She and I have had some more fieldtrips since our last one though, so allow me to fill you in.
+
+Our first fieldtrip went more or less okay, so the social worker expressed excitement about doing another one. I didn't yet feel comfortable thrusting her into a highly social situation yet, of course, so I searched out some more low-profile places for us to visit. I asked her if there were any movies she would be interested in seeing. Of course it hit me she hadn't much contact with the outside world to observe what the new movies were. I filled her in, and the movie she picked just happen to be 300 (I know you're all going to make me say this: Yes, we dined in hell). Now obviously I knew this wasn't going to fly with anybody, so I redirected her attention to a more kid friendly movie. So we planned on going to see The Last Mimzy. We also decided on going to another fast food place, since she so enjoyed her last hamburger, which she eventually finished along with that sandwich. And for our final stop we planned on going to a Gamestop near the home, to possibly pick out a new DS game for her to play. I was a bit anxious about this last choice, I was hoping she could find something she could play with relative ease.
+
+* (attached image filename is Amputeechan.jpg)
+
+### 03/26/07 (Mon) 20:22:18 No.23024039  ###
+
+So our journey started as she was loaded up into the van. She had her iPod headphones in her ears, ready to endure another car trip. She was dressed for the occasion, pants and prosthetic legs, she still didn't feel comfortable with her stubs. I held her hand as the car began to start. She looked uncomfortable, but at the very least less so than our last trip. After the trip, we got out. She was still very happy to be out of the van.
+
+We bought our tickets, and we were off into the lobby. We went into the movie lobby, and I could sense she was uncomfortable. There were a lot of people in the lobby, and she was sort of an oddity. I told her the same thing I told her on our last trip, "You're braver than them, and prettier too." I then reassured her that once we got in the theater it would be perfectly dark. I asked her if she wanted any sort of snack foods or drinks. We got a bucket of popcorn to share, and we both got sodas. The social worker got some popcorn for herself too. We traveled into the theather, and we found a nice seat near the top. The movie hadn't started yet, so they were still playing those slides with the ads on them. The social worker and I amused ourselves by trying to answer those movie trivia questions on the slides. Amputee-chan didn't get any, but I told her they were just for old people anyways.
+
+### 03/26/07 (Mon) 20:30:11 No.23024450  ###
+
+The movie finally started. We weren't prepared for anything amazing, atleast I would've rather been seeing 300, but it surprised us. It was about kids with supernatural powers who got toys from the future, usual kid fare. Amputee-chan seemed to enjoy it. For a moment she looked like any other kid, eating popcorn and keeping her eyes fixated on the screen. The movie came and went, and we skipped out on the credits. I asked her how she liked the movie, and she seemed pleased which made both the social worker and I happy. I was hoping we could get through this trip without any "mini-breakdowns".
+
+Since she had filled up on so much popcorn, she wasn't exactly hungry to go gorge on fast food just yet, so we decided to rearrange our schedule a bit. After another car trip which wasn't as bad as the last, we arrived at the door of Gamestop. We went in and she began looking over the DS games. There were few other people in the store which took a load off of her mind. The teenaged person working there gave her a few glances, which made me think he might be a /b/tard. And he might've been. If he's reading this, I'd like to thank him for not pointing us out.
+
+### 03/26/07 (Mon) 20:43:29 No.23025221  ###
+
+I pointed out Yoshi Touch and Go to her, since it only involved the stylus she could probably play it. She gladly took my recommendation. She also saw Yoshi's Island DS, it was a more button oriented game so I was hesitant to buy it. But I thought we may be able to figure it out later, and purchased it. We took our purchases to the counter, and the teen working there slipped her a few more glances. I glanced at the social worker to see if she was noticing this, but she seemed bored, not being into video games. She seemed content at her new games, and thanked me for buying them.
+
+The trip was going great, and we had one more place we intended on going. After a final car trip, which she seemed somewhat okay with,we arrived at our destination. Immediately I noticed the place had a play area, and was hoping this wouldn't upset her. She didn't notice it at first luckily so we went up to order. I had a hamburger and some fries, and she had the same thing. The social worker didn't get anything, so we sat down to our table. This table was perfectly within the view of that play place, so I sat on the side that would be facing it. I didn't want it to ruin her meal by having her stare at it.
+
+### 03/26/07 (Mon) 20:51:11 No.23025656  ###
+
+McDonalds isn't exactly the best food, but with her not having had anything but hospital food generally (with the exception of the food she had on our last trip) she found it to be delicious. She ate pretty fast, and I asked her if there was anything else she would like. She got an ice cream cone, and got it down pretty quickly too. I felt a bit slow having her and the social worker sitting there watching me finish my meal, so I took it to go and we headed back into the van.
+
+We were on our way back to the home and she seemed happy with the way things went. I was happy too, it was a great day. I thought to myself that maybe if our next few trips went as well, we would eventually be let out without the social worker. We returned to the home and she was eager to try out her new games. She got back to her room and put Touch and Go in her DS. She seemed to adapt to the control style quickly which pleased her. She found the game rather addictive, and we traded off playing it for a bit.
+
+### 03/26/07 (Mon) 21:03:32 No.23026345  ###
+
+She was a bit tired from the day, so she drifted off to sleep and I left her room. I bumped into the social worker as I was leaving the home and we exchanged quick greetings. The next day it was back to work, but it didn't feel as much like work with **amputee-chan** there. I was going to check on her but got called away to help one of the elderly patients. After getting him all settled, I went off to her room. I found her playing her DS, Touch and Go still in the cartridge slot. She hadn't taken the other game out of its package yet. She was very much addicted to Yoshi, but told me to play a bit and try to beat her high score. She had been playing all night, so I couldn't come close to her. She seemed pleased that she could beat me, and I didn't mind.
+
+We played for a bit and she said she'd like to try the other game she got. So I took it out of the package, and she began trying to play. She soon learned that it was going to be difficult for her to play. She handed the game to me, but I didn't want to upstage her since I had played the original SNES version. Instead I said we should play it like we play Mario Kart. She agreed, and we were able to play a little bit better.
+
+### 03/26/07 (Mon) 21:05:36 No.23026476  ###
+
+We're planning on taking another fieldtrip this coming Sunday, so I need some ideas on where to go. You guys had some good ideas last time, so keep them coming. The social worker will still be accompanying us. I was thinking we might want to go see another movie, if there was anything else good playing.
+
+### 03/26/07 (Mon) 21:16:11 No.23027077  ###
+
+>  _re: "You seem to be in a fairly large center, so is there any places like the museum that you visited before (was it a museum? all that stands out is the space thing with jumping jack flash . . . )_  
+>  _I was thinking something along the lines of an aquarium, or zoo a la the imposter last time. If not, how about a park or some nature place? That is, if you're free from the icy grasp of winter"_
+
+A zoo could work out. Guys I do appreciate the effort you all put into analyzing threads to make sure its the real me posting, but I only started writing about her because I thought /b/ would enjoy it, not to stir up a bunch of drama about who's who in every thread.
+
+### 03/26/07 (Mon) 21:19:46 No.23027276  ###
+
+>  _re: "real nurse-kun makes a lot of small posts to answer questions. _  
+>  _thread is a fake!"_
+
+You all seem to a lot more debating than asking questions, but I'll be sticking around if you have any.
+
+### 03/26/07 (Mon) 21:23:12 No.23027456  ###
+
+>  _re: "What does she call you?_  
+>  _Mr. [Last name]? [First name]?"_
+
+We're on a first name basis, it makes her feel more comfortable. I don't want to be an imposing medical person, I'd like to be her friend. There's not many friends in the medical system.
+
+### 03/26/07 (Mon) 21:26:44 No.23027645  ###
+
+>  _re: "With her seeming to make such a fast recovery (If she isn't, disreguard this question), aren't you worried that she will be moved into a foster home, which would ruin any plans you have of adoption (If infact you have any plans)?"_  
+Well she is recovering at a nice rate, she's not recovering so fast that she'll be swept away any time soon.
+>  _re: "I think you mentioned in earlier posts that the social worker was pretty reluctant about the whole idea. Does she seems more relax now? Do you think you'll have more of a chance of getting some alone time with amputee-chan outside of the home?"_
+
+She seemed much more relaxed on this trip, and even had a bit of fun I would say. I think that if things continue to go well, I will have that chance.
+
 <a id="chapter19"></a>
+## Part 19 (April 3rd, 2007) ##
+
+This Nurse-kun now uses the tripcode "**Nurse-kun** !!hPl7vWPKR+W" for identification purposes. Remember kids, real [[tripcode]] aren't bold, only the Username portion.
+
+### 23586286 ###
+
+Hey, /b/. It's been a while, I know, but I thought I'd give this another shot, since things have calmed down slightly as of late in my personal life, and I did say I might be back in a month or so in my last post...which I just remembered a few days ago. I wasn't very thrilled to get accused of being an imposter of...myself, my writing style that day apparently being sub-par and 'not like the real Nurse-kun's'. Well, a friend of mine told me that he dropped in to let you know that I was having some trouble at the time that was weighing heavily, and I figured, fuck it, I might as well just tell you, though I'm not looking for attention via doing so, merely offering it as an explanation.
+
+You can judge for yourselves then, though I can't say I'm overly inspired at this point.
+(As a side note, the picture I'm posting with this is beautiful, and to whoever did it: You touched me when I saw it.)
+
+### 23586624 ###
+
+My father has cancer. Pancreatic cancer, which they've caught too late to have much chance of 'curing'. He had an attack of pain so severe that it left him curled up in a fetal position on the kitchen floor in the house I grew up in, and this man, that I've never seen make so much as a sound in my life when he's been hurt, couldn't keep from screaming. He was rushed to the hospital in an ambulance against his own urgings, and within twelve hours, they had the diagnosis. I took the night off work when I heard about this, and was there when the doctor gave his results. That was two days before the last time I posted, wherein I was trying to relate the story of our trip to the zoo, on the previous friday, before the incident.
+
+I may not be an oncologist, but I've worked with enough patients in various areas of our system to know what a late-caught pancreatic cancer diagnosis means. I suppose I shouldn't have posted at the time, should've taken some more time off before doing so, but I actually thought to myself: 'Hey, maybe it'll cheer me up a little.'. Shows just how messed up this little affair has left me, to think this about /b/, huh?
+
+### 23586994 ###
+
+Anyway, after I said 'fuck this shit' and left, my life went on. I began a new juggling act, between my girl and my father, with her social worker, after the third outing, to a hockey game, actually, giving her approval to me as a 'mentor', thus ending the chaperoning. So for the past four weeks or so, I've averaged three or four afternoons a week with him and my mom (he's gotten pretty sick of us 'hovering' at this point, but she seems to need it), and two or so with her. This hasn't left a lot of time for even the wreck of a social life I had before, but while I can say 'fuck this' to you guys, saying it to them is just a bit harder.
+
+### 23587323 ###
+
+But I'll tell you a story now, first, just to get the personal 'whoring' out of the way. After all, I'm quite aware of what those of you that are interested in this at all are here for.
+
+About a week after my father's initial hospitalization, when I was at work, and somewhat distractedly playing a game of chess with her, she was quiet for a long while, until the game was nearly over, then looked up at me, and asked me what was wrong. I was somewhat surprised, and snapped out of my own thoughts, which had indeed been centered on my family's 'problem'. I'd been nearly as out of it with her as I had been on here, and she'd clearly noticed, but not said anything until then.
+
+### 23587784 ###
+
+I finally told her, after hesitating and thinking about it for a good minute or so, just what was happening. She listened quietly, not interrupting, as I related the details, and when I was finished, and I looked down quietly, feeling bad now that I'd layed that on her, which I certainly wouldn't do with a 'normal' girl her age, she proceeded to move her bishop, and say "Checkmate".
+
+I couldn't help but laugh, after a few seconds. As she watched me, rubbing my eyes as I did so, I caught a hint of a smile, a grin, even, though it was as fleeting as a spring breeze. Once I'd gotten it out of my system and congratulated her on beating me, as usual, she surprised me again, by quietly saying, "Sorry.". She clarified, a moment later, that she meant about 'my dad', and then she seemed to be the one hesitating, before speaking in a bit of a rush, telling me: "...it's...hard.".
+
+### 23588139 ###
+
+Whatever pain and regret I'd been feeling, both for myself and for involving her in it, magnified themselves as she said that in a near-whisper, staring down at my captured king in her hand, resting in her lap. I set the board aside and moved from my chair to sit on the edge of her bed, and tentatively put an arm around her shoulders, as she squeezed her eyes shut. I told her that I was sorry, that I shouldn't have dragged her into my own problems, my voice faltering a bit as I saw that she was fighting to hold back tears then, and dropped the chess piece to hold her hand over her eyes, as if to hide them.
+
+Feeling like a real piece of shit, I stroked her hair, and apologized again, then thanked her for her sympathy, telling her she'd helped me feel better for it; the fact that I now felt even worse than before was no obstacle to my saying so. Then she said something that I haven't been able to forget since.
+
+### 23588909 ###
+
+"I hate that girl in Elite Beat Agents. Real life isn't like that.". I'd known pretty much from the start that that stage in that game wasn't going to go over well, and while she didn't play it when we were together, and had said in the past that she 'didn't like it', it'd been a somewhat low-key do not want. I wasn't really sure what the right response would be, but after she lapsed into silence, I had to try something, so I eventually simply nodded slightly, and said 'No, it isn't.'. I mean, sure, the rest of the game is ridiculous as well, but this was hardly the time for a smart-assed response.
+
+Then, after a moment more of silence, she spoke up again, voice hauntingly painful: "...people just go away. Forever.". And despite her delivery, her previous composure, as she finished the final syllable in that word, her vocie quavered, and she started crying. Not having anything to say that could fix that, I just held her, and did my best not to make things any worse.
+
+### 23589052 (Inconceivable) ###
+
+> _Hey Nurse-kun, if you put something in the e-mail feild, even just a random word, it makes the tripcode stand out a lot more and people can't spoof it like that_
+
+Huh, didn't know that. Thanks.
+
+### 23589313 (You keep using that word...) ###
+
+Not much else happened that night...she eventually settled down a bit, and I helped dry her eyes and cheeks, and told her, with as much sincerity and honesty as I could summon forth, that she was the most special girl I knew, and that I really did feel better now. She fell asleep a few minutes later, clutching my hand as tightly as she ever had outside of a nightmare incident, and as I sat there with her for a while longer, I have to admit...I did feel better, for all the pain the whole thing stirred up.
+
+### 23589675 (I do not think it means what you think it means.) ###
+
+I made a formal application for adoption within the week. I don't know...maybe the combination of this event and her words made it clear to me that life is short, and sitting on the sidelines just gives you a good view while it passes you by. When I took her, for one of our outings, back to my family home, at her request and my mother's approval, it certainly seemed crystallized for me, as I watched her, sitting in her chair in the living room beside my father, half-asleep due to the painkillers, in his recliner, reach out and rest her little hand on top of his big, work-worn one...I can't really say with any surety.
+
+All I can say is that I know I'm doing the right thing. And I'll see it through, no matter what it might cost me.
+
+### 23589927 (I threw a rock at him!) ###
+
+Anyway...not sure I have the energy to post a summary of every single outing or event that went down at the moment, but I suppose I can open up the floor for questions...and see where things go. I actually have the day off for once, so no need to dash off just yet. Hm.
+
+### 23590190 (...it was a big one...) ###
+
+> _oh shit, I must have missed a chapter or so, I didn't know that you had taken her out of the nursing home already. Awesome dude, good for you._
+
+No, she's still there. But I've begun the journey to try and adopt her. Thus far, her social worker hasn't raised any major flags when I spoke to her about it, though she's told me what most other people have: that it isn't going to be easy. But then, I knew that going in...
+
+### 23590826 (She didn't think too much of the bears, either.) ###
+
+> _Should this whole "one mans quest to adopt a loli" thing actually pan out, can we still expect updates on amputans daily progress?_  
+> _Or are you just going to disappear in the sunset?_
+
+Honestly not sure. I haven't thought quite that far ahead...
+
+### 23591407 ###
+
+> _Inactive thread is inactive_
+
+For fuck's sake. Quick Reply has apparently eaten my last several posts, so I'm going to try again. Bear with me.
+
+### 23591619 ###
+
+> _You also need to sought out her schooling and everything. Does she have to go to a special needs school? How soon can she start school again?_  
+> _Edumaction is important._
+
+Thus far, she hasn't really recieved any schooling since she's been at the home...really heartening to see the system working, yeah. If it works out, I'd probably be homeschooling her until she's got the rehab down to an art, since she's made it clear she still hates the chair, and if she could walk, even with some help from me, we wouldn't be using it on our outings. Since her mental faculties are unharmed, she'd likely not need a 'special needs' school, though she's still got a long way to go in dealing with her trauma, so she probably wouldn't be the perfect boring student. It's something we'll need to face when we face it.
+
+> _Are you sure this is the best moment to start such a process? It certainly won't lessen your stress form your father's cancer? /b/ worries for you, Nurse-kun._
+
+Maybe not. But I think I'd wind up in worse shape if I let her sit in that bed in that home for another six months, just to use an abstract number, without doing what I think I need to do. If I know my dad, he'd say I'm doing the right thing...he was a good one, after all...
+
+### 23591857 ###
+
+> _Cool. Let me start by saying congratulations on taking the really big leap and trying for adoption. With everything else in your life at the moment, that's quite a step to take. This story made me tear up a bit ;_;_  
+> _Now, if it's not too irritating, can I ask a few housekeeping type questions. There's been some confusion about what is really by you and what isn't, and I'm sure that will go away gradually now that tripcodes are back. Frankly, I'm assuming you're the real deal, since everything about you sounds like it, and we'll go from there._  
+> _So the thread a month ago was a real outing and you did go to the zoo? There was a nurse-kun post a few days ago with a different tripcode that contradicted that, but it seemed very flakey. (Right, like a 7 year old would really ask to go see 300... >_>) Also, to clear up some confusion, are you the one who signed up for the Nurse-kun account on the wiki?_  
+> _I realize these questions seem a little dumb in the grand scheme of things, but I think the way to look at it is that there are enough people who honestly care about this story and how it turns out that they want to see how it really ends without being led on or bel-aired._
+
+Now, the biggest post that got eaten...whooo.
+
+Not sure how to deal with having a non-serial killer copycat. Not that I'm a serial killer with serial killer copycats. ...ahem.
+
+Yes, the thread a month ago was real, and we really went to the zoo. No, any posts between then and today weren't me. 300? Really? Christ.
+
+Ah, the wiki. Yes, that was me. But I realized after a few posts that it was pretty dumb to post there with my ip hanging out, proxy or otherwise, particularly since I'm not very good with them. So I stopped using it. Unfortunately, between then and now, I've forgotten the password for the account, as it wasn't one of my 'usual' ones. So I can't access it, and barring some haxxoring, nobody else can either, so I can honestly say we've seen the last of Nurse-kun on the wiki. Sorry?
+
+### 23592272 ###
+
+> _Hey, no problems about the wiki account. Some people were just wondering if that was a way to contact you or not._  
+> _And yeah, the "other-nurse-kun" vetoed 300 and went to see The Last Mimzy instead if that makes you feel better in a vaugely creepy imaginary way. -_-_
+
+...hm. Well, the ads for that have creeped ME out more than 300 did. But I suppose it's a point in my doppleganger's favour.
+
+### 23592301 ###
+
+> _It's obvious she's grown more open with you, but has that extended to other people so far?_
+
+God DAMN IT. That makes TWO responses to this that have been eaten so far. Long ones, too. Fuck. I'm going to write this out in notepad, then I'll post it in a bit.
+
+### 23592690 ###
+
+Not much has changed with regard to the rest of the staff, the resident shrinkette, her rehab nurses. She's started seeing a specialist in childhood psychiatric trauma at the children's hospital once a week, but she's still distant and reserved with her, too. The rest of the residents/patients and her rehab peers have been generally avoided as usual, but not fought with, so that's something...though a small stuffed lion was thrown at the head of an obnoxious brat at the zoo, who ran wailing to her parents, who had little sympathy once they heard what she'd said out of their earshot. The lion was retrieved and dusted off, and no blood was spilled...this time.
+
+The incident with my dad...I think he was too out of it to really acknowledge it, or likely even remember it, but my mom saw it from the kitchen, along with me. We didn't mention that we'd seen it to her, didn't want to embarass her or something...but I'm pretty sure my mom was really touched by me...as was I, of course. While we were there, she was on the best behaviour I've seen thus far, and while not really friendly as such, as not-unfriendly as I've seen her, too. So that was nice...
+
+### 23592801 ###
+
+Finally...oh, yeah, I heard about the wiki going down...my old link doesn't seem to work anymore. Anyone have a new one for me?
+
+> **This was provided. Then Nurse-kun noted images were missing, and proasted all the inspired images he had. And it was good.**
+
+### 23596624 ###
+
+> _All these pics make me wish I could draw..._  
+> _Do you actually show her these?_
+
+Well, I did try to be consistent with that after the first thread or two, yeah...you get a gold star?
+
+### 23596809 ###
+
+> _I seem to remember he showed her one, think it was this image:_
+
+First, to everyone: Sorry guys, these mysql failures are horrendous. Is it always like this around here now? I don't remember it ever being this bad, aside from around GET-time.
+
+Now, to this: Actually, it was this one. She likes metroid. And got the chozo joke, and seemed to think it was pretty funny. It's hanging on her wall alongside her bed; I said a 'friend of mine' did it, which is close enough. I'd show her others, but too much would be...odd, I'd think, and, well. Hm.
+
+### 23597000 ###
+
+> > _All these pictures make me want to draw some._  
+> > _Where do I send my nurse-kun/ampu-tan fanart? And where can I read a description of their appearances?_  
+> _You post it here. Where the hell else would it go? This is an imageboard for a reason._
+
+And just to second this; new fanart is always welcome in these threads. Even if she might not see it (yet), I appreciate it, anyway. And hey, that metroid pic was produced well into this little journey of ours, so it isn't as though it's impossible for her to see it either, if it seems appropriate.
+
+### 23597222 ###
+
+> _Nurse-kun, have you ever toyed with the idea of opening a donation for Amputee-chan? I'd be very willing to help this little girl which I also grew somewhat attached to through your story._
+
+I considered it, but ruled it out after brief consideration. First, there's the anonymity issue. Second, I've never gone begging to strangers for money before, and I'd rather not now. And third, whenever someone DOES go begging to strangers, human nature prompts others to try and wreck that shit. Besides, I'd hardly want moot or snacks to come after me for diverting revenue away from 4chan.
+But thanks for the thought, that much is appreciated and accepted.
+
+### 23597272 ###
+
+> _If new fan art is added by posting it in threads, why are you posting these?_
+
+I noticed that these older pictures were missing from the wiki, so I thought I'd offer them from my own folder. It's no big thing.
+
+### 23597383 ###
+
+> _if this post comes through: is your dad then gonna bite the dust, or does he have any healing chances still?_
+
+The odds are.....slim. He's scheduled to go in for a surgical attempt at a whipple procedure soon, but the feeling I got from the doctors, though they wouldn't say it out loud, is that the odds aren't looking good...I'm afraid that palliative care may be the only real viable option at this point, as much as I may not want it to be the truth.
+
+### 23597446 ###
+
+> _Yeah the anonymous issue, i was giving that a lot of thought and frankly i have no idea how one could anonymously help you. The thought of donating just came to mind because like you mentioned a couple of times that taking further care of her (when you finally do get to adopt her *hope*) it will cost you an assload of money. And even if here parents left here some money it will not suffice endlessly... Just my 2 cents._  
+> _On another note: I've been searching through the archived threads. Either I'm blind or you really never mentioned her birthday. That coming up soon? Plans?_
+
+Her birthday's in the summer, so not just yet. Though I do intend to make sure it gets done right, rather than the abominations that pass for one in the nursing home.
+
+### 23597571 ###
+
+> > _I wonder. If Ampu-tan found out about how famous she is, would she despise nurse-kun for talking about it on the internet like he does? I think so. But I still am interested in seeing what happens._  
+> _Someday when she is older she might stumble upon a nurse-kun link on the internet, but it is highly unlikely. Nurse-kun probably won't be that popular by the time she's old enough to browse places of the internet where you'd find nurse-kun links._
+
+Well, I'd certainly hope not. I have the advantage of not being an amusing fat kid with a golf ball retriever and a camcorder.
+
+### 23597933 ###
+
+> _Glad to hear that. Actually a very special birthday since it's a second first birthday (yet somewhat a crappy one) having survived a car crash / fire and all._
+
+Right...I mean, I'd certainly think it's a big consideration. Actually, I was in /co/ earlier, and I saw one of the constant Ben10 threads (a show I haven't seen myself, but I have been in /co/, so hey), which was filled with pictures of the female character at a waterslide park. And it hit me like a ton of bricks (that may have been shat).
+
+I'm glad, in a way, that it's still a way off, and I don't really have to think about it that much right now, though I'll have to before it's a week away.
+
+### 23598114 ###
+
+> _you still have the duty to expose her to all that fan-art when she is old enough, though... at least this is what I think you owe anonymous._
+
+I...prefer not to think on that at the moment. THE FUTURE! THE FUTURE IS NOT YET WRITTEN, DAMN IT! Let her remain free from 'us' a bit longer yet...!
+
+### 23598391 ###
+
+> > _hey nurse-kun, is ampu-tan into Dragonforce?_  
+> _we already had that some time ago. she is into classical music, as established in a previous thread._
+
+Actually, her tastes are pretty eclectic. She hasn't asked for any Dragonforce just yet (or other heavy metal that I know of, actually), but she has blues, rock, some bluegrass, some electronic stuff, pop...I'm not much into music myself, so I'm not much help to her there, other than ferrying her iPod back and forth between my internet connection and her ears.
+
+### 23598555 ###
+
+> > _The thing that gets me most about the fan art is that, to my knowledge (and I've seen almost all the threads) nobody has explicitly 34'd this yet. I mean, I know that ITT /b/ shows what little remains of their atrophied hearts and is generally nice, but still, some things are just immutable laws..._  
+> _there is some... well, nude ampu-tan, but no nurse-kun and her fucking, IIRC._
+
+I recall those pictures. They seemed generally 'arty' to me, I didn't find them offensive...though I don't have them on my HD, either. No offense to the artist, she just looked a bit too wasted and drawn, it was just depressing to look at...
+
+### 23599006 ###
+
+> **Regarding (ANOTHER) discussion on the merits of forcing the loli to listen to certain genres/bands (i.e. metal.)**
+
+Gentlemen, gentlemen! Surely she could learn to love (and create, via electronic means if advancement in prosthetics does not continue at the breakneck pace it currently is) all the genres of music! She could surely bring them together, just as she brings together glass (eyes), metal (knees), plastic (feet), mechanical gears (arm and hand), and flesh (the rest of her!)!
+
+### 23599278 ###
+
+> _im gonna be jumping on the bandwagon with fanart nurse kun, expect a little something by summer ^_^_  
+> _its amazing to see something like this on /b/, after all this time it still amazes me. sorry to hear about your father and i know the futures only gonna get tougher but i wish you luck from the bottom of my heart_
+
+Well, that'd be awesome, of course. And thank you.
+
+### 23599493 ###
+
+> _Has it ever struck you that you may be bringing up what in time is to become a fearsome mecha-loli?_
+
+Only in my wildest dreams (wherein we fight crime and team up with Rally and Minny May).
+
+### 23599618 ###
+
+> _The small part of my soul that still has faith in humanity hopes to hell that this story is true, because it would be perhaps one of the kindest things a human being can do for another human being._  
+_and_  
+> _Finally, posting in a Nurse-kun thread._  
+> _You're more or less my hero after I read through the wiki._
+
+I'm really not that special...if I can do this, I like to think any of you guys have the potential to as well. But thanks, again.
+
+### 23599898 ###
+
+> > _gb2/gaia fag_  
+> _You're the one who should go back to Gaia if you think /b/ is all about hatred and making fun of people. /b/ is not just a personal army website. /b/ is RANDOM. There are NO RULES. Nurse-kun has supplied us with a story unlike anything else ever posted here. Shape up and appreciate it, kid._
+
+If randomness can hold the lowest of the low, can it not also hold the highest of the high (which would not be me)? I mean, this isn't /e/vil or /a/ssholes or something, guys. (Not that I'm saying such things have no place here either, of course.)
+
+### 23600499 ###
+
+> _one thing, was she white or asian? i remember hearing she was japanese but all the fanart depicts her blonde hair blue eye_
+
+Her father was a first-generation Scandanavian-American, full-out blonde hair and, actually, blue eyes, pale (but tannable) skin, tall stature, etc. Her mother was fourth or fifth-generation Japanese-American. Seems the dice rolled such that she got much of his colouring, with a mix of their facial traits and such. It's an interesting combination, I can't really describe it that well, not being an artist, but she's got a roughly even blend of caucasian and japanese features, small but not puggish button nose, good cheekbones, eyes are somewhere in-betweenish, strong but not pronounced chin, etc...kind of a cross between a really cute japanese girl and a really cute nordic-type girl. And I think she's very cute, though I suppose that's subjective for some people. And yes, her eyes are green, and her hair is an ashy blonde...it's not barbie or raincoat yellow, but it is blonde.
+
+I'm not a geneticist, but I know I've seen pictures of other half-japanese people that turned out natural blonde and blue/green eyed before, so I hardly think it's THAT bizarre.
+Ahem.
+
+### 23600597 ###
+
+> _The wiki seems really confused about this right now. Nurse-kun, was Chapter 17 or 18 your last real post?_
+
+Whichever one is the first 'Spartacus' title on there. Wherein we went to the zoo before I said 'fuck it'. Whichever came after that and before this wasn't me.
+
+### 23600797 ###
+
+> > _IIRC, Japanese mother, Scandinavian father._  
+> _is that genetically possible? less the mom had blonde hair green eyes gene not present in a pure japanese the brunette brown eye gene would win out_
+
+I'm not entirely sure about her whole family history. I know her mom was a fourth/fifth generation Japanese-American, I'm not sure what may have happened in either sides of her family stretching back in the 70+ years before now. I saw a picture and she looked pretty Japanese to me, (and pretty pretty, too, though I kind of feel bad saying so, still, she was), but I'm not an expert in picking up heritage through traits and such.
+
+### 23600903 ###
+
+> _Sup, Nurse-kun._
+
+Just chillin'. You?
+
+### 23601267 ###
+
+> _how far advanced are prosthetic hands and arms then by now and what will she be able to do with them?_  
+> _and this story reminds me of a movie I saw sometime, where a dj got his hands amputated and had them programmed to play his keyboard... must.look.for.it.on.imdb._
+
+The elbow, wrist aand fingers are all pretty necessary to play the instruments she knows, or most instruments, even. I mean, wasn't Def Leppard's one-armed drummer a below-elbow amputee, even? As it stands the current generation just doesn't have the speed or dexterity to handle musical performances beyond, like, kindergarten stuff, which she was somewhat beyond already. Even with some piano pieces written specifically for a pianist with just his left hand after WWI (I think) would still require foot pedals, I think, so even there she's kind of screwed...it's not very good, as it stands. Synthesizers and electronic stuff seems like her best choices for right here and now, and she's refused to try it when I've offered to get some software on my laptop and smuggle it in for her to try out, so...
+
+### 23601439 ###
+
+> > _When we get pictures I'm going to find out what hospital she's staying at and tell them that this sick fuck was planing on raping her._  
+> _This is why we can't have nice things._
+
+Yeah, see, that's why no pictures, my respect for some of her dignity and privacy aside.
+
+### 23601574 ###
+
+> _There where some other instruments mentioned in one of the previous threads. Strange that no one calls for her to sing. Nurse-kun says she has very sweet voice and in a way voice is also an instrument. I guess asking for voice samples bares no fruit?_
+
+She sings very well, the few times I've heard it...and even those were just sort of mumble-singing along to songs from EBA and a few songs on her iPod and such. Nothing really 'I'm going to sing now' dedicated, you know? Still, I thought it was lovely. But, um, I'm not thinking I'm going to post vocal samples on here. That would be a bit creepy, yeah.
+
+### 23601611 ###
+
+> _I remember you saying she used to play the piano and violin. I started to wonder what she could play now, as she'd likely want to stay in music, that could be played with one hand. I was thinking, perhaps a Continuum? As I'm not good with words, I'll just link to the wikipedia article._  
+> _<http://en.wikipedia.org/wiki/Continuum_%28instrument%29''>_  
+> _I've actually seen the instrument played with one hand. Quite well at that. However, looking into it, it costs $3000-$5000._  
+> _I don't know, just thought you might find that helpful and/or interesting. Here's the official site, if the price hasn't already scared you off._  
+> _<http://www.hakenaudio.com/Continuum/''>_
+
+Huh, I'll have to look into that...though the price is a bit wince-inducing, yes.
+
+### 23601903 ###
+
+> > _too much pretentious, manipulative language_  
+> > _either 100% bullshit, or OP is creepy beyond description; some sort of emotional vampire_
+
+Well, I like to think I'm not an emotional vampire, whatever the fuck that's supposed to be. I'm obviously leaving out a fair bit and using my own words to try and convey the actions and thoughts and motivations of people other than myself, and since I'm no great author, I'm likely to come off a bit sour in my 'notes' every now and then. Guess I can only say 'sorry' and try harder next time, while assuring you I don't suck quite the way you think I do?
+
+> _I don't think I can convey this feeling with text._  
+> _It's just this massive, unrestrained urge to grab your head and pound it on the pavement until you die. It's like just when you're close to coming - that's how bad I want to hurt you. I want to murder your unborn children. I want to rape your daughter. I want to eat your wife and spit on your grave._
+
+Whoa, dude. That's a bit much, really. We can all read into things in different ways, coloured by our own experiences and feelings and such...live and let live, man.
+
+### 23602077 ###
+
+> _Ok it is creepy. But still, she might become a great singer._
+
+Well, I'd certainly encourage her if she felt like singing, but she isn't my performing monkey, so I don't want to push her into doing something she's uncomfortable with...
+
+### 23602192 ###
+
+> _from the chapter 17 archive:_
+> > _Friend of Nurse-kun here. Actually, Nurse-kun number one really is the genuine article, and 21727722 on down is full of shit. He's been having some problems with his family recently, and isn't in good shape about it. I'm not really sure what's up. I haven't asked, but I don't think it has any relation to his job or Amputee-tan (who, by the way, is not as cute as he usually describes)._  
+> _nurse-kun says in op that this guy is real. so I guess there ARE pics, but we don't get them ;_;_
+
+Sorry, guys. Just the way the cookie crumbles x several thousand+ people vs a few close friends, you know?
+
+### 23602356 ###
+
+> > _(who, by the way, is not as cute as he usually describes)._  
+> _nurse-kun says in op that this guy is real._  
+> _So, maybe it's better we don't get pictures. But for one man to live a storybook drama in real life for six months, and tell the world how it happened-- I think maybe that's enough._
+
+Like I said earlier, we're all entitled to our opinions. I haven't seen him judging any beauty competitions yet, so he's hardly an authority!
+
+### 23603759 ###
+
+> _What kind of situation are you living in? Still living with your parents, got your own place, or what? Do you think that your dad having pancreatic cancer might form a barrier to adopting the girl?_
+
+I moved out when I went to college, and I've been living on my own since, about an hour, with traffic, from my parents' place. I live in an apartment. I realize I'm going to have to move to a better place if/when it happens. And I don't see why it would, as the rest of my family doesn't, and I believe they'd still support me...
+
+### 23603954 ###
+
+> _If he's so nice and wonderful and charitable yadda yadda yadda why doesn't he take such an interest in the older patients? Why does he view them with contempt? I'll tell you why, he doesn't have an old people fetish._
+
+Who said I view them with contempt? I'm just a realist, and I don't particularly enjoy cleaning up bodily waste. Pardon me for an occasional jocular tone to my words on a board with at least one 'you laugh, you lose' thread a day.
+
+### 23604038 ###
+
+> _Whoever adapts this to a book had damn well better not make it a women's novel. Whatever magic Nurse-kun's story has that has given /b/ the ability to care MUST be infused into the print edition of this story...but please, please...not a women's novel..._
+
+Personally, I'd rather nobody copied this and 'adapted' it for sale. But hey, not like anybody cares what I want, right?
+
+### 23604580 ###
+
+> _[question about incorporating exercising into his life in preparation]_
+
+Sorry, missed that. Um, yes, she exercises every day, and I'd expect that I'd do so, at least a bit, along with her, were we living together.
+
+### 23604816 ###
+
+> _Poster who said that here. If you don't want it used then it shant be, cross my heart. Just the writer in me thinking about the possibility_
+
+No, I understand. I just quoted your post because I was too lazy to quote the three(+?) people saying they were, or were considering, 'adapting' this and selling it somewhere. Hey, if someone wants to write a story based on this, whatever, go ahead. Selling it? I dunno, I'd feel somewhat less neutral or positive about that. You want to make a webcomic, or a fanfic, or whatever, that doesn't bother me. Submitting it to some 'genuine' publisher for wide release? That's when I start to feel somewhat annoyed.
+I mean, I'm kind of busy with the life inside the story at the moment, and be a Nurse, not a Writer, damn it, but who knows about the future? If this makes any sense?
+
+### 23605694 ###
+
+> _is the social worker aware of your current family issues? would moving to adopt her now raise any additional flags because of it?_
+
+Yes, she is. Part of the conversation we had when I saw her after submitting my application for adoption was about my father's condition, and how it'd affected my decision to move forward with this. She'd already known I was considering the possibilities, and said that she could see how my father's diagnosis could make me evaluate my own life, and my future.
+
+She was pretty supportive, even as she was honest about how difficult it'd still be; even so, she said that his condition probably wouldn't negatively affect my chances, anyway...and might make it more clear to the people that decide these things why I'd do so.
+
+### 23605838 ###
+
+> _Nurse-kun !aiGJu3yh2o: I DID IT, I IMPERSONATED NURSE-KUN, AND I DID IT FOR THE LULZ AND GODDAMNIT I'D DO IT AGAIN I'D DO IT 100 TIMES_
+
+WHILE I ADMIRE YOUR PLUCK, I CANNOT GIVE YOU MY LIFE NOR MY LOLI, FIENDISH DOPPLEGANGER. YOU WILL HAVE TO FIND YOUR OWN.
+
+### 23605893 ###
+
+> _Hey Nurse-kun. Were the initials of the zoo BPZ? I think we live near one another._
+
+Well now, I can't comment on that one way or another. Sorry.
+
+### 23606259 ###
+
+> _LIES. I would rather produce all this crap, and give her only a 10% share. after all, it is me who has done most of the work. she just got crippled._
+
+Man, you belong on The Apprentice. /b/ isn't big enough for you.
+
+### 23606442 ###
+
+> _On the manga side: Let's face it, get someone like Yu Aida who knows how to draw broken girls and realistic settings (see: Gunslinger Girl,) and you have an instant .jp hit that'd probably do well in N. America and Europe too._  
+On the monies: I think it'd be awesome if in the future (say around when this obviously bright girl starts looking at college,) the story could be published in various forms and media, and the money could all go into a fund for her schooling and general well-being.__
+
+Well, I wouldn't mind collaborating with a manga artist, but I, uh, don't exactly know any of them. Or Japanese. Or much of anything non-catheter-related, to be honest. Oh well.
+
+### 23606595 ###
+
+> _by "very difficult" does she mean that you are unlikely to succeed in adopting her, or that if you do, life will be hard? or is it both?_
+
+More the first, adoption in general is hard, single people adopting much harder, even if the system doesn't really want her, and nobody else is likely to. The second is true as well, but isn't really what she was referring to...
+
+### 23606693 ###
+
+> _I approve of this massive burn!_
+
+No, no, it was a compliment! I mean, shit, I can just see the Trump gobbling that initiative up. American dream, baby! (Ok, maybe not a real compliment, but it wasn't a full-on burn, either.)
+
+### 23606805 ###
+
+> _what are you going to do if someone makes money from your story? sue them? that would be one funny day when everyone you know finds your logs at wikichan or similar failure logging websight_
+
+There is indeed a dilemma there, to be certain. Positively Shakespearian, it is.
+
+### 23607017 ###
+
+> _I remember being here during your first thread, and reading and watching, and suggesting things, and hoping for you._  
+> _This all endlessly reminds me of Densha Otoko, someone's probably said this before because every repost is repost repost, but this could be 4chan's D-O._  
+> _;_; Saving this._
+
+Welcome back? Thanks for all your support! (film critics rave about romancing ampu-tan)
+
+### 23607940 ###
+
+> _ok, I've onlyt just noticed Nurse-kun was back, and I haven't browsed through ALL of this massive shit, but I was curious:_  
+> _How do YOU, Nurse-kun, feel about the attention that /b/ is paying you?_
+
+It's weird, and not particularly like anything I've experienced before. I've never been much of an attention seeker, so having this much paid to me is...a new experience, and somewhat unsettling.
+
+I mean, you guys want the truth? My initially posting about this on 4chan, let alone /b/, wasn't even my idea. When I was discussing her with the friend I mentioned in the OP, who posted in the last thread, he suggested that I post about her here, and we started joking about what a discussion about her in here would be like, and, well, that's where most of the ideas for poopering, and generic copypasta 'raep teh loli' stuff came from. I really didn't expect it to turn out like this. At all.
+
+### 23608124 ###
+
+> _I kind of suspected that. Well, best of luck to you. Make sure you have as many family members as possible attend whatever hearings there are (I don't know much about adoption proceedings) to show that you have support to fall back on._  
+> _Have you actually talked to the girl about adoption? You don't mention it in any of your posts, unless I missed something._
+
+I know, I haven't mentioned the discussion we had on the subject yet...but it was kind of a personal one...yeah, I know, I know, but even for all of this. It seems...wrong...to post it here, you know? Just like I haven't posted the discussion my dad and I had about her when he was in bed in the hospital, and...well. I guess I'm a failure as a /b/tard thus far, sorry guys.
+
+### 23608601 ###
+
+> _I mean, I'm concerned about YOU more than Ampu-tan (I feel like a cad for it, but hey, there it is), especially with your dad and all. How are YOU?_
+
+I'm...surviving. Don't even need any nuts. It's still day by day, and they each seem to last a year or so. The rest of the family is depending on me, since I've dealt with this sort of thing before, which is a new thing for me, too...but all I can do is try and keep going, you know? What else can I do? Just drop it all and hide under my bed with my hands over my ears?
+
+### 23608645 ###
+
+> _In b4 Dan Kim..._
+
+...huh.
+
+### 23609079 ###
+
+> _Well at least you could give us a hint if she is in favor of the idea or not, since it throws a different lighting on the whole affair either way._
+
+It's complex, but she was more or less in favour of the idea...mostly...or at least in seeing how things go......it's complicated.
+
+### 23609629 ###
+
+> _WHAT. That's[autosage] not there anymore?_
+
+Now I am unstoppable!
+
+### 23609870 ###
+
+> _Well, they also have access to real manga. If you'd rather me go Del-rey, Broccoli or Dark Horse I could push that too. Hell, for that matter, I could even get the idea to AKA Cartoon, Dreamworks Animation or the USA Network._
+
+That...might be moving a bit fast. I'd, um, need to think about this, and doing it right now probably isn't the best idea, joking aside. But thank you for your offer of help.
+
+### 23610201 ###
+
+> _i'd really like to know anything you'd be comfortable with about her feelings about adoption_  
+> _you need only utter one word_
+
+Complicated, but for, mostly. As much as someone in her situation, at her age, can be for something like that. It's not a simple either/or/one/the other situation.
+
+### 23610331 ###
+
+> _Dan Kim is a webcomic artist. he's pretty popular around /b/. besides his "Nana" work, he does some fairly serious stuff as well. check it out if you have the time, the Nurse-kun/Amputee chan saga is right up his ally._  
+> _<http://manga.clone-army.org/''>_  
+> _infact, he's actually a fan of yours_  
+> _<http://blog.clone-army.org/?p=253''>_
+
+I know. I am aware of him, and have read through Nana's Everyday Life, a few months back, post the start of all of this. He's an excellent artist, and a creative talent.
+
+### 23610584 ###
+
+> _Reading this reminded me of a post Dan Kim made in March of 2006..._  
+> _"Okay, so there’s a book called City Limits. It’s a compilation work, with a few different people with stuff in the book. What’s my submission? A story about an armless, legless, mentally disturbed loli hospital shut-in. I am not even kidding. It’s the perfect wrist-cutting bastard spawn of Nana and PXI."_
+
+Well, that's kind of disturbing.
+
+### 23610917 ###
+
+> _You really are an inspiration. Your story has inspired me to change things in my own life, and I'm thankful for, if nothing else, just you being you._
+
+Thank you for being there to support me. Without people like you, I may have given up on what seemed like a hopelessly doomed notion. For every anonymous that says I'm their inspiration, I can just hold up a mirror. That goes for all of you.
+
+### 23611919 ###
+
+> _I would say as soon as nurse-kun leaves this thread dies._
+
+Well, I do have to leave for work in an hour and a half or so. And since I'll be with her, I'd have to defend her even against 4chan, were a bunch of you to show up in green ski masks and try to 'raid' her.
+
+### 23612020 ###
+
+> _[re: Nurse-kun being 4chan's Densha Otoko]_
+
+And here I'd never even heard of Densha Otoko before all this. I suppose that's the internets for you.
+
+### 23612266 ###
+
+> _You should teach her how to handle a gun. I don't know why, but it sounds so awesome. I probably just need to lay off the fucking Gunslinger Girl._
+
+Man, this may make me seem unAmerican, but *I* don't know how to handle a gun. Dad was always very much opposed to it.
+
+### 23612364 ###
+
+> _Do you sleep man?_  
+> _Don't overdo it on our account. =D_
+
+On a 'posting day', I generally get home from work in the morning, sleep for six to eight hours, wind up posting in one of these threads for most of the day, then go to work. Like I said earlier, it's a wreck of a social life at best, practically a second job already.
+
+### 23612681 ###
+
+> _Somewhat most posts in this thread give more attention to Nurse-kun than amputee-chan. I guess she would be mostly ignored cause of idolizing nurse-kun._
+
+Certainly wasn't my intention. The last couple of threads have been weird, in any case, **though I hope to rectify that with the next one.**
+
+### 23612945 ###
+
+> _Nurse-kun.... I.... grazed my knee and it hurts, would you make it better for me?_
+
+Topical antiseptic hurts, you know. But I did do my first stint in the ER...
+
+### 23613125 ###
+
+> _[states basic rules for handling a gun]_
+
+I dunno, man. I'm not the hurtin' people type. I prefer my deadly objects made out of stainless steel and handed to doctors.
+
+### 23613484 ###
+
+> _Nurse-kun, tell us about what's been going on with you and Amputee-chan, your adoption conversation aside._
+
+Well, a fair amount of things have happened...I'm not sure I have the time or the energy to really get into them right now, though, particularly as I'm making a late dinner and getting ready for work.
+
+### 23613961 ###
+
+She's improved in some areas, and not as much in others. The car ride to the zoo, for example, was nearly identical to the downtown core the previous time. It may have been slightly 'better' for her because the previous one was her longest trip since the accident, but I can't say I really noticed a major difference...she kept her iPod on loud enough that I could make out words from my spot beside her, and that was over the noise of the engine and traffic, which were not inconsiderable.
+
+### 23614398 ###
+
+She's still having the nightmares...it's just that after the first few descriptions, there didn't seem to be much more I could say without sounding like I was tugging at heartstrings and copypasta-ing myself. It's almost disturbing how similar they are; she relives the crash and the subsequent entombment in the car with her dead parents, then the firefighters and paramedics showing up and cutting her out of it, then the trip to the hospital, and her experience in the ER...
+
+...she remembers EVERYTHING. Every time. Unless she breaks out of it herself and manages to wake up, or I'm close enough to hear her whimpering and talking in her sleep (which sometimes turn into screaming), and I wake her up. Then I sit with her, and hold her, and do my best to comfort her, and help her calm down, and dry her eyes...
+
+This is still happening an average of three times a week, sometimes as much as five, used to average five and sometimes happen every night in the hospital post-accident.
+
+### 23614922 ###
+
+I don't discuss them much anymore because I don't like thinking about them, and about what she's going through. I had nightmares for a while myself as a child, though nothing like this, and thinking about her...well.
+
+She's still roughly as prone to PTSD 'attacks' as before, mostly when she gets stressed out, when she's exposed to things that bother her...she'd start freaking out when she needed an MRI in the hospital, and even being in her washroom makes her visibly tense. Our resident shrink reports not much progress with her new specialist at the children's hospital (another longer car-ride a week, which she isn't too happy about), but it may simply be an issue of trust, as well.
+
+### 23615768 ###
+
+She's still working hard at her physical rehabilitation...and making more progress, even slow as it is, than on the other fronts. She's now making it halfway down the parallel bars walk of glory on her own just about every session, and can make it there and back again without a major stumble with a nurse's help, most days. Of course, she needs to rest and recover afterward. Unfortunately, her phantom pain is still as bad as ever, and it often acts up after a rigorous session.
+
+She's working hard with her arm and hand as well, and making progress in coordinating the use of her elbow, wrist, and grip...nearly as quickly as any patient she's had before, her primary nurse there says. Her use of her left hand has just kept improving as well...considerably faster than mine has, as I provide less and less challenge to her at EBA and Ouendan.
+
+### 23616096 ###
+
+Basically, she's trying her best with what she's capable of changing, and trying to accept and deal with what she can't...though I don't think she'd much care for being compared to a religious prayer. She continues to be awesome.
+
+### 23616446 ###
+
+> _[Wild suggestions regarding some sort of lucid dream training.]_
+
+Um, yeah, I'm not an expert, or even particularly knowledgable in the human mind. Pretending otherwise doesn't seem to be a particularly wise thing at this juncture, nor does trying to 'fix' her on my own...which I know I can't do.
+
+### 23616897 ###
+
+> _[More suggestions about learning to interrupt bad dreams by oneself]_
+
+Well, our resident shrink has tried to work with her on the nightmares, and I'd imagine that her new specialist will be as well...my trying to 'help out' could be like a complete retard trying to 'help out' with inserting a catheter. It may sound simple, but you don't want to see what happens when it goes wrong.
+
+### 23617002 ###
+
+> _[re: [#23615768](/#23615768)]_  
+> _At that pace, you'll need to start using your dominant hand to provide a challenge to her, eh?_
+
+Well, I'm not quite sure about that just yet...she's getting really good, but I'm not a complete fool when it comes to using a stylus to save the world.
+
+### 23617145 ###
+
+> _Rest well Nurse-Kun._
+
+Rest well? Man, I'm going to work in a little while until the sun starts coming up. But thanks for the thought.
+
+### 23617653 ###
+
+> _So what happened to the picture you took of the receipt and scrubs?_
+
+Oh geez, that? I don't even know where the film for that might be. I'll just try and re-take it.
+
+### 23618365 ###
+
+![](1175661041960.jpg)
+> _You guys just wait, Amputee-chan and Nurse-kun are going to become a pair of world-saving heroes. Amputee-chan will pilot the helicopter while Nurse-kun jumps into danger and takes out the bad guys._
+
+You'd be surprised what these things can do in the wrong hands...
+
+### 23618448 ###
+
+> _Nurse-kun, perhaps the most important question of all: it's hard to tell just on small snippets of text (though we are grateful for them), but do tell us - is her overall mood and tone happy? I mean, yeah there are nightmares she has and therapy, but is she happy through all this?_
+
+No. It sounds bad, feels bad, to say it so simply, but no, overall, she isn't happy. She has moments...here and there...sometimes daily...but no. Not overall.
+
+### 23618538 ###
+
+Mm, I need to get going in the next few minutes. Any last words for the night, /b/?
+
+### 23618943 ###
+
+> _kill yourself_
+
+And on that note, off I go. Sweet dreams, /b/, and I'll try and see if I can help her have the same.
+Night.
+
 <a id="chapter20"></a>
+## Part 20 (April 10th, 2007)  ##
+
+This Nurse-kun uses the tripcode "**Nurse-kun** !!hPl7vWPKR+W" for identification purposes. Remember kids, real [Tripcode](/Tripcode) aren't bold, only the Username portion.
+![ Attached image. ](1172454858691.jpg)
+
+### 24182049  ###
+
+Hey, /b/. Another week, another explosion of shit, a veritable shitsunami, if you will. But this isn't really about me, as I well know, so I'll get to what you're actually interested in, those of you that aren't about to call me a fag.
+
+When it comes to my girl, much of the aforementioned shit wasn't so bad, but there wasn't really anything xyber huge that happened, either. Still, stuff did happen, as it always does in life, so I'll try and relay some of the interesting bits.
+
+### 24183426  ###
+
+First thing that springs to mind is another incident at rehab. This one happened in the pool, however, rather than her more-commonly utilized walking area. Pool therapy hasn't been as central to her rehab as it is in paralysis cases, since her (remaining) legs and lower body still have the strength and control they had before the accident (maybe more now, actually), so 'water-walking' isn't really that helpful to her. Still, swimming is an excellent form of exercise, so she still winds up getting wet at least once every couple weeks or so.
+
+The problem is, however, that she doesn't like being there very much. Unlike her walking rehab, where she gives it everything she has and more or less looks forward to doing so, she doesn't like the pool...largely because it means wearing a swimsuit and feeling more 'exposed' than she does on land. She has a set of 'swimming limbs', which are comprised of a set of hollow legs with holes to let water in, to reduce buoyancy, and with a special ankle that locks in an extended position, and a similar arm. They're simple, really, but work well enough.
+
+### 24184494  ###
+
+She was offered a more specialized swimming arm with a folding flexible 'paddle', but refused it, at least for the time being. She already stands out enough, I suppose, without making it 'worse', in her mind...which is at the root of why she's uncomfortable there. While there are a few other kids with missing limbs there as well, it doesn't seem to help much with her feeling like she 'fits in', particularly since none of them have her level of loss, with the only other triple-amputee currently in the facilitee being an ex-army reservist in his forties. And the simple fact that while she's doing her 'land training', she wears long sleeves over her arm, and long shorts, generally, at the least, that cover her thighs, whereas at the pool, all of that is exposed.
+
+Anyway...there she was, doing the swim-thing, her aquatic rehab nurse right alongside her in the water as she made her way back and forth...she was a pretty good swimmer before the accident, so she doesn't have to deal with basic skills, at least, though she still has trouble with diving and surfacing, as opposed to simply staying on the surface and moving along it. There weren't many problems with the actual planned swimming part.
+
+### 24185342  ###
+
+The problem came when her nurse called a break, and helped her (the legs aren't really made for walking, particularly with her level of amputation) to a bench to sit and rest for a bit, then headed over to talk with a friend of hers at a station about half the pool-length away. Things went uneventfully for five minutes or so, with her sitting there, sipping a sports drink (since she sweats a good deal more than fully-limbed kid her size, she also needs to replensih a good deal more) and looking generally uncomfortable, probably; then trouble surfaced when another girl took a seat a few feet away from her. From what I've heard, this one, a couple years older than her, lost her arms in an unspecified accident, and had been an avid swimmer beforehand, so was working hard at that part of rehab, much like our girl was with her walking.
+
+So they'd have a fair amount in common, bond, and be BFF, right? You'd hope so...but things rarely go so well in reality.
+
+### 24185890  ###
+
+Now, I don't have the details on what went down, as she was somewhat recalcitrant in providing all the details, though she did discuss other aspects of the incident with me. And since the two of them were the only ones around at that point, I guess those details are only going to be known to them until they decide otherwise.
+
+But something did go down. As she put it, the other girl, who's apparently white, pretty, from a reasonably well-off family, and still pretty new to her disability, even moreso than our girl, actually, after they'd exchanged a few normal words, said something 'mean'. She then admitted that she said something 'mean' in return, and things went back and forth, with her getting agitated and more aggressive, and the other girl behaving similarly...considering what happened to her, she may have PSTD too, really, support from family and friends and such or not.
+
+### 24187079  ###
+
+Things got more heated, though it seems that it was a slow burn, since nobody that was supposed to be in a position of authority seemed to have noticed. The other girl stood up and moved to loom over her as they continued exchanging words...and a few moments later, she splashed the older girl in the face with her drink, giving her a blue moneyshot. Well, that's when the gloves, so to speak, came off, and the older girl, who'd switched her swimming arms for her usual ones, slapped the bottle out of our girl's hand with one of them, and gave her a nasty smack in the cheek with her steel hooks with the other.
+
+By this time both of them had raised their voices and were attracting some attention, and the older girl had gotten a grip on her hair with one of her hooks, was pinching her side with the other; she'd managed to grab one of the other girl's arms with her left hand, meanwhile, and pulled herself up to a standing position, while shoving her plastic right hand and forearm into the other girl's face, squishing her nose a bit.
+
+### 24187676  ###
+
+Well, 'raised voices' wouldn't really cut it at this point, with the older girl pulling our girl's hair and giving her as hard a pinching as she could manage, while she got a chlorine-scented plastic hand shoved in her face, and a real one starting to dig a thumb into the soft bits between her collarbone and her neck. People were running (well, as best as you can on a wet pool deck) to try and break it up, but before they could reach the two of them, our girl gave the older one a pretty vicious (from onlooker's descriptions) shove to the solar plexus with her good hand, which sent her stumbling and slipping backward...and right into the pool at the edge.
+Unfortunately, she was still hanging onto her hair (which she tore a hookfull of out), and as it turned out, her swimsuit, so she got pulled in right along with her.
+
+### 24188312  ###
+
+Well, that tossed some cold water on the fight, to use a terrible metaphor, with both their nurses diving in to pull them out; the older girl was struggling but managing to keep her head above water, but ours was having more trouble, having the aforementioned trouble with doing the same. Fortunately, she got helped up to the surface before she was in any real danger, though she did cough up some water she'd sucked in before she got her bearings.
+
+The older girl was helped out first, standing up a bit dizzily...only to fall again, this time face-first onto the deck, when our girl grabbed one of her ankles and pulled. Well, at that point, they were quickly seperated, with the older girl crying and having bit her lip when she fell the second time, in addition to having scraped her knees, and a sullen claim of 'she started it' being the only excuse offered by ours.
+
+### 24188768  ###
+
+This being the second fight in as many months, she got more flack this time than the first, even if the other girl did start it (I believe her, even if I'm hardly the most impartial person), particularly for that last move, when the fight was already 'over'. She didn't see it that way, of course, as she pointed out to her rehab nurse, social worker, in-house shrink, and new specialist shrink, when they all grilled her on it, and tried to make it clear that it wasn't acceptable. They didn't make much headway; even if she said she knew it was 'wrong', she didn't say she felt bad about it, bruises or otherwise.
+
+Unlike the first incident, her social worker suggested that I have a talk with her about it and try to make the party line clear to her. I suppose it's a good thing, in a way, that I'm being included, whether it's just because of our relationship, or because I'm being viewed as being a definite part of her life in some way...well, it feels like a good thing, anyway.
+
+### 24189215  ###
+
+I'd heard most of the story from the resident shrinkette and my friend at the rehab center; the story from the other girl and onlookers, anyway. When I came into work that night, I heard her side, which I've already more or less relayed in previous posts. She was pretty tight-lipped about what set it all off, sticking to her 'mean' summation of what was said. Whether it was intentional cruelty, or the kinds of things kids say to each other, even if they're on the low end of the totem pole as well, I can't really say...I suppose it doesn't matter too much. I told her that she already knew it wasn't a good thing for her to get into fights, as we'd already talked about at least twice so far...and I know she knows it, even if she looked away rather than admitting it herself. I told her that I didn't want her to get into trouble, because she didn't deserve that...and it more or less wrapped up with a hug and a diversion into playing a game to try and forget about it for now.
+
+### 24189520  ###
+
+The thing I feel worst about in this whole incident is that she wound up fighting with another kid going through some of the same things she is, rather than them hitting it off...I mean, at this point, I'm more or less her only friend, and I'm quite aware that isn't a particularly healthy state of affairs for a child. Maybe a fight was deserved, maybe it wasn't, I don't know...still, I can't help but regret the outcome, you know? Life and human irrationality sucks sometimes, particularly when the people that need something the most can't help themselves from driving it away...ah, well...
+
+First story that sprang to mind, I'll try and think of another that might be interesting, but for now, I suppose I can switch to question/answer/random mode for now.
+
+### 24189646  ###
+
+>  _Nurse-kun, ever thought of typing this all out in notepad first and then copy it to /b/? Also, this is the best thing that's happened to /b/ since snacks._
+
+I have...but I find that I seem to tell a story better when I'm doing it off the top of my head in the moment than writing it all out in one go elsewhere...hard to explain, guess I'm just weird, sorry. Besides, this seems to help it pop up onto the frontpage at a more 'sustained' rate than just one big splurt at once, then letting it drift into obscurity?
+
+### 24189721  ###
+
+>  _[WAH! WAH! WAH!] This isn't nurse-kun, [WAH! WAH! WAH!]_
+
+Well, I'd like to think otherwise, but I suppose you can't ever convince everyone of something, no matter what. I mean, faked moon landing theorist you may not be, and I'm not likely to 'Buzz you one', but hey.
+
+### 24190103  ###
+
+>  _man, shes a tough girl_
+
+Too tough, I worry, at times. Still, I suppose she has to be, whether she wants to or not, at this point, lest she crumble...
+
+### 24190330  ###
+
+>  _Your girl sounds to me like she's got a bit of Detta Walker in her. That nigress is tough as _nails_. (So much so that Chuck Norris wets his pants at the mention of her name.)_
+
+Her rehab nurse suggested the possibility of some Aikido lessons, to help her practice her falling, and as a general 'thing to do'. It sounds like a good idea, really, since I know I'm inadequate to the task of giving her everything she needs outside of her bed, no matter how hard I try...I'm just not sure the world of Fools is ready for her to be able to flip people all over the place with her one good hand, you know? (And less jovially, even as peaceable as aikido seems, considering her aggressive tendencies, getting her involved in any fighting seems unwise somehow...)
+
+### 24190555  ###
+
+>  _Take care of her, man. I found myself wincing when she got hurt in the story... I'm really suprised you didn't do any fan service, like, "This most certainly closed the pool for the day." But it would cheapen the material, i think. You're an inspiration. She's got balls of steel, though...Or atleast joints of plastic._
+
+I considered it, but it didn't work out so well the last time I tried it. Though, as it turns out, it more or less DID close the pool for the day. Of course, they were in the last rehab slot of the day in the late afternoon, but that's immaterial to this discussion.
+
+Pool(wa)'s closed, bitches. Due to VIO-LEN-CE.
+
+### 24191038  ###
+
+> _ That seems like it would be a good idea, Aikido is more about falls, and not getting hurt then it is about hurting others._
+
+Really? I don't know (or pretend to know) much about martial arts, took a karate class for, like, two months back when I was in junior high, but that's about it. Would aikido be a good idea? I did some quick web-searches for local schools after the suggestion, though I suppose I don't really know enough to have made sense of what I found. Lots of them focused on being very kid-friendly, and non-fighting centered and such, which seemed nice, but most martial arts schools I've seen said stuff like that, really. And considering some of the dumbasses I've seen on the internets when martial arts come up, most of the ones that actually do it probably going to schools that also say the same thing, I had to wonder...
+
+### 24191566  ###
+
+>  _How is she doing on EBA? I've been playing Ouendan, so it is on my mind._
+
+Knew I missed one. She's still improving, up to Hard (Sweatin'), though she's still just scraping her way through with Bs to Cs. In her save file on Ouendan pre-accident, she was gettings As and a couple Ss on the hardest (Insane) setting...
+Still pretty amazing, I mean, try playing with your off-hand some time.
+
+### 24191688  ###
+
+>  [The Awakening of Nurse-kun, Chapter 20#24190555](/The_Awakening_of_Nurse-kun,_Chapter_20#24190555) _You're a scholar and a /b/tard, Nurse-kun. Thanks for the Fan service. Was that really you with the "We went to the animal park" Story? it doesn't seem like it at all, Your usually a better speller._
+
+Yes, that was me, as I explained last week.
+
+### 24191741  ###
+
+>  _It's been awhile since your last post, Nurse-chan! Have you two been able to go on an unsupervised outing yet? Just curious. Thanks for posting these ^^_
+
+We've been going out unchaperoned for a while now, and it's gone pretty well, I'm happy to say.
+
+### 24191999  ###
+
+>  _What the hell does Amputee-chan do all day? I don't think rehab takes all day so what does she do? Nothing? That would make even me crazy (and i consider myself physically an adult) but think of a child..._
+
+When we're not going to an outing or at rehab...?
+
+...yes, she more or less sits in her bed. Reads a book, or plays a game, perhaps. Occasionally gets wheeled around the home for one reason or another, though she doesn't like that much.
+
+This is why I tried to push for the outings...and it still drives me crazy, thinking about what she's doing when I can't be there, even if that sounds egotistical.
+
+### 24192324  ###
+
+>  _You know, I just had a thought. You said before that she only uses one hand to play her DS right? What would she think about a Wii? I know that you couldn't just give her one, that's a bit too much, but maybe the hospital could invest in some for all of the residents? It might help her socialize a bit more if she could play games with some of the other kids her age, you know, doing something she enjoys._
+
+I've considered suggesting it, but I don't think it'd work out. I mean, she's not in a hospital...she's surrounded by elderly people, the youngest of whom is...58, I think? Early onset dementia in her case. I just don't think it'd go over that well, and she'd need to hang around with them, which she's not that comfortable with in the best of days, to use it...
+
+### 24192457  ###
+
+>  _Before this wonderful girl showed up, did anything remotely interesting happen to you that could even compare to this?_
+
+No, my life was pretty normal, I have to say, until it [The Fresh Prince of Bel Air](/The_Fresh_Prince_of_Bel_Air)...just kidding. But seriously, no, I was a pretty normal guy, with a normal life, more or less, night shift aside.
+
+### 24193183  ###
+
+>  _[WAH! WAH! WAH!] /b/tards are supposed to be the worst of the worst and proud of it. You make me sick with your talk of, "hope," and well-wishing. go fucking die in a fire, faggot. [WAH! WAH!]_
+
+I've found that people that try so hard to be the 'worst of the worst' tend to be the most pathetic of the pathetic. Just in my experience.
+
+### 24193305  ###
+
+>  _If you and Ampu-tan are going out that often, aren't you worried that some random /b/tard might spot you? Last I checked, the US seems to be pretty densly populated with 4channers- but not so populated with triple amputee, distinctly half-asian children._
+
+A bit, but that's life, you know? I mean, it'd be pretty counterproductive to keep her locked away in a cage for fear that I be exposed for wanting to help her get out of her cage...
+
+### 24193565  ###
+
+>  _I lost half of my sympathy to You when you became a tripfag. Please, remove this faggotry and identify as you once were. Else, more threads will be infested with sage like this one. Anonymous nurse-kun is better then a faggery-dagery-doo from a tripfag._
+
+Look, if it'll cut half the jr. detective faggotry of people claiming 'NO NO, IT'S NOT REALLY HIM', it'll be worth the retards making a stink about tripfaggotry. And I hardly think using a tripcode in one type of thread and nowhere else (I do post elsewhere), where it's on-topic, makes me into a tripfag. But to each their own, I guess. Not much I can do if someone wants to act like an idiot.
+
+### 24193959  ###
+
+>  (Random Guro/Gore Spam.)
+
+Wow, guro thumbnails. That sure will get me, what with my totally not having worked in an ER and all.
+
+### 24194320  ###
+
+>  _have you thought about your future if she moves in with you? i know you said you'd have to give up your job, but have you looked into ways of making money (to supplement the stipend or whatever) that don't require leaving the house for long periods?_
+
+I'm considering possibilities, but I'm a bit busy at the moment, so I haven't had the opportunity to give it the attention it may deserve. Of course, I could say the same of a number of other aspects of my life, so hey.
+
+### 24194545  ###
+
+>  _i noticed in your last post that you mentioned you'd moved to adopt her. how long does that sort of thing take to decide? will you have to appear in court or something? is your supervisor aware of your plans?_
+
+Quite a while. Yes. Yes.
+
+### 24194690  ###
+
+>  _Maby she could pick up creative writing? She reads enough and it would help her vent some of her emotions. Plus- being a young knowledge-sponge, could teach you how to keep your sentences in manageable portions._
+
+Har har. I bought her a notebook and pens and pencils and such some time ago, but they've just sat collecting dust in her desk...guess she isn't ready yet.
+
+### 24195224  ###
+
+>  _How goes the adoption process?_
+
+Going about as well as can be hoped for, thus far...I have another appointment with someone in family services next week, but so far, according to her social worker, so good.
+
+And to the guy that asked about my father (sorry, didn't respond to your post at the time), he's...more or less unchanged. He was having a pretty good day yesterday, pain at low levels, able to eat something without it getting worse, and thus lower pain meds with lower side effects as well...it was a good day, with everyone getting together and managing to actually have a pretty good day, rather than the general depression since, well.
+
+### 24195709  ###
+
+>  _Hey Nurse-kun! You mentioned that she was trapped in the car with her parents corpses for a while before she was rescued. Any idea how long she had to stay there, whether their deaths were instant (I have no idea what would be worst for a kid, seeing your dead parents or watching them die) or if she was even conscious for it? Morbid I know, but curiosity is an evil thing some days._
+
+Well...I try not to think about it too much, but I've pieced a fair amount of it together, between what she's told me, and a few other source of information...I suppose I've told you guys enough that this wouldn't be much worse.
+
+Her father was driving, and, as far as can be told, was killed instantly in the collision, being crushed and nearly decapitated. Her mother was in the passenger's seat and reacted a bit faster than her father, moving to try and cover her...and got crushed from the waist down, in addition to serious trauma to her torso from the rear (being turned to face/cover her in the crash)...and wound up more or less 'on top' of her after the crash...and still alive. It seems she died a few minutes after our girl regained conciousness post head-wound, but, yes, she was alive for a while there, if...mm.
+
+It would've been better if she could've just been unconcious...I wish she had been...
+
+### 24195990  ###
+
+>  _so nurse-kun have you installed a cage in your basement yet?_
+
+Not **yet**.
+
+### 24196111  ###
+
+>  _Any plans on turning her into the ultimate weapon for military purposes?_
+
+I'm not much of a military type. It'd have to be private contracting, at best.
+
+### 24196320  ###
+
+>  _How is your life going, aside from cute mecha lolis and your father's illness? Is the family holding together well? Times must really suck._
+
+Well, we aren't fracturing, which is good enough for now...as I mentioned in a previous post, we got together yesterday for a meal on Easter Monday, and it went better than it had since the initial incident...gave me some hope, while I kept my mind on the moment, anyway.
+
+### 24197226  ###
+
+>  _i have a pilonital cyst._ (responding to gore spam involving extra err... "holes")
+
+Sorry to hear it, man. Shit sux. I'd really suggest you go to a doctor/hospital and get it treated, because it'll only get worse with time, assuming you haven't already. Man, maybe I'll tell you about this one story a doctor told me about an infected stoma on a hooker in his ER...seems she'd been letting (at least one?) client pay to fuck it.
+
+I'll just let you all google 'stoma' now, if you didn't already know...yeah, all this guro sure will get to me, I sure didn't laugh the laugh of the already damned at that story when I heard it.
+
+### 24197462  ###
+
+>  _Heyhey NK! What do you look like anyway? Just a rough description will do._
+
+Nothing special, really...white, brown hair, upper end of 5 feet, relatively decent shape due to a physical job and a not completely horrible lifestyle...I'm pretty anonymous, even in real life.
+
+### 24197855  ###
+
+>  [The Awakening of Nurse-kun, Chapter 20#24197226](/The_Awakening_of_Nurse-kun,_Chapter_20#24197226) _I'm getting surgery soon. i keep having to bleach my fucking boxers, cuz it always bleeds. the operation isnt supposed to be too painful, so i'm not worried. its not like getting three of your limbs amputated and your parents killed, at any rate._
+
+Recovery isn't much fun, but at least you'll get a (hopefully cute, female) nurse getting a look at and pulling packing strips out of your new hole for a while before it heals. Heck, maybe you'll get a date out of it. (Assuming anonymous doesn't already have a girl/boyfriend, no offense)
+
+### 24198714  ###
+
+>  _NK. In the distant future if you do become her guardian: what are you going to do when she misbehaves? PTSD or not, she'll need disipline. And are you really sure you could come down hard on her if you needed to?_
+
+
+Well, I'll have to figure something out, I'm sure...though I'm hardly the physical type. I like to think my own parents raised me pretty well, and I can expect some help from my mom...and my dad's example. She's a good kid, just in a bad place, I don't forsee her needing a lot of discipline...
+
+### 24199177  ###
+
+>  _I did a check of Aikido on wikipedia, here's what I found._  
+> _Aikido is a modern Japanese martial art (gendai bud?) developed by Morihei Ueshiba as a synthesis of his martial studies, philosophy, and religious beliefs. Ueshiba's goal was to create a martial art through which a practitioner could achieve the ability to defend himself without injuring his attacker._  
+> _Aikido emphasizes joining with an attack and redirecting the attacker's energy, as opposed to meeting force with force, and consists primarily of body throws and joint-locking techniques. In addition to physical fitness and techniques, mental training, controlled relaxation, and development of "spirit" (ki) are emphasized in aikido training._  
+> _I don't think she'd be able to effectively attack or anything, but surely defend._
+
+Well, if she did start it, it'd hardly be to learn how to fight...which I'd rather she didn't. But of the choices in the field, it seems like it'd be the most appropriate. I'm considering whether to suggest it to her social worker or not, at this point, and seeking out more information.
+
+### 24199391  ###
+
+>  _oh christ he's on zippocat now. i'm enjoying the spammer more than the other posts._ (spammer ran out of gore, and started reposting zippocat ad nauseum)
+
+I do have to admire his efficiency, if nothing else. He's really got it down to a science at this point, getting them out there that fast, in order.
+
+Or, you know, a script or something, I guess. Ah, well.
+
+
 <a id="chapter21"></a>
+## Part 21 (April 26th, 2007)  ##
+
+Posted under the tripped name Nurse-kun !!hPl7vWPKR+W.
+
+### 25536736  ###
+
+Hey, /b/. I know I've been absent for a bit lately, but, well, stuff's been happening. I was going to try and update you last weekend, but /b/ seemed to be busy being raped by MySQL, so, hey. As previously mentioned, stuff has, in fact, been happening, but I won't bore you with the details, not just yet, anyway. Instead, I suppose I'll tell you what I was doing yesterday, instead. See, she'd been...'injured'...in the torso during the accident, as well as the limbs and her head. It'd been a pretty serious injury, as well, in the vicnity of her liver and surrounding organs. They managed to repair the damage to a sufficient extent at the time, but some of her bloodwork had been showing some troubling numbers since then, and X-rays didn't show much, and an MRI wasn't very feasible (hard to take one when the patient is freaking out with a PTSD flashback...) so an ERCP was scheduled for yesterday.
+
+### 25537459  ###
+
+Now, understandably, she wasn't too thrilled about this prospect. I mean, firstly, she's sick of hospitals in general, with the rehab facility only being tolerated out of necessity, but without much love. Secondly, who really wants a multiple-foot tube tentacle-raping your throat/upper digestive tract? And thirdly, well...she was a bit afraid, even if she didn't admit it out loud. Even falling asleep isn't something she finds comforting anymore, and she associates being anesthetized or sedated with the initial surgical work just after the accident, so... Still, it did need to be done. The specialist in charge of the procedure and monitoring these problems was meeting resistance from her, and where normally a young patient would have their parents to help calm them down and convince them that it would be okay, and that it needed to be done, she...well, doesn't. So her social worker suggested me, instead.
+
+### 25537981  ###
+
+I was a bit surprised, but pleasently so, on the whole, really. I mean, it seemed to show that her worker recognized that I was probably the person she trusted most in the world, which was nice on the level of a bonus to my adoption score (so to metaphorize), but also nice on a personal sort of level, that I might be able to help her a bit more. Anyway, once he (the specialist) got in touch with me, we discussed her situation beyond what he knew on paper (he'd never actually met her yet, go system go), with me filling him in on her fears and issues, and then offering to try and help smooth things over.
+
+### 25538611  ###
+
+Of course, saying was, as it usually is, easier than doing. Due to the problems I've already mentioned, convincing her wasn't a simple task. She seemed to understand the medical issues and their urgency, understood that this was the only feasible way to figure out what was going on so that they could treat her properly, but as is human nature, her knowledge and logical comprehension didn't automatically overcome her feelings on the subject. We sat up and talked for a long while about her fears and distaste for the procedure, the primary amongst their number being in a surgical environment again, laying on a table, IV hooked into her remaining limb, surrounded by masked doctors and nurses, then being 'put to sleep'...putting yourself in her position and remembering her not-so-distant past, wouldn't you be afraid, too?
+
+### 25539278  ###
+
+She actually started crying when she was describing her memories of the last time she was in just that situation, which is very unusual for her general withdrawn state, outside of nightmares. I comforted her as best I could, and offered to go with her, and stay by her side the entire time, to make sure they treated her right, and to protect her. I know, of course, that I couldn't really do much to do so, but what was important was that she believed it, or believed me saying it, rather than the 'facts'. We spoke a bit longer, but she eventually agreed, tentatively, to consenting to the procedure. That was a few weeks ago, and the time finally came yesterday. I showed up at the nursing home at around 6:30, still not quite fully awake but practically chugging coffee, as the procedure was scheduled for 8, and she needed to be at the hospital by 7...
+
+### 25539883  ###
+
+She was in a barely-controlled state of panic when I got to her room, finding her already dressed and ready to go, wearing all her limbs and an assortment of some of the spring clothing we picked up on an earlier outing; she must've folded at least five cranes in the two or three minutes I took upfolding her chair and double-checking with her nurse on duty out at the station in the hallway. She was still fidgeting when I got back, looking out her window and generally acting restless...not kicking her feet or such, of course, but her good hand and her myoelectric alike were twisting her skirt in her lap, as she bit her lip...I kneeled in front of her and did a bit of head-weaving to catch her eye, and tried to smile as confidently as I could, reassuring her that it'd be all right, and we'd go out and have some fun afterward.
+
+### 25540371  ###
+
+She looked down a bit, then eventually nodded, and I helped her up into her chair...she's started insisting lately on my merely helping hold onto her as she walks to it, which is still great to see every time. Once she was in it, we wheeled on out to the facility's van, got loaded up, and headed on out, taking my old position of holding her hand as she filled her ears with music and shut her eyes, something that we haven't done for a while, with me doing the driving on our outings (though I do reach over to hold it while we're stopped at lights, as she sits up front with me). Once we arrived, we wheel-walked our way into the hospital and headed for the GI unit, arriving a few minutes early. It was still pretty empty at that point, with only one woman already waiting, and a man showing up a few minutes after we did, while we were waiting to be called.
+
+### 25540999  ###
+
+We were playing some Ouendan to pass the time, with her beating me considerably more handily, still, than with EBA. Of course, I only had one earbud in to keep one open for her name to be called, and we were only halfway into our third game when just that happened. We wrapped things up, and I wheeled her in after her prep-nurse, a nice older woman with 'Kiffy' on her nametag (turned out to be short for Katherine, which she claimed nobody had ever called her). I introduced myself and explained my credentials and position in the matter, and was quickly accepted without wrangling or 'I'll need to check that...', thankfully. We were shown to an ERCP recovery room consisting of a small room with three beds, which Kiffy explained they'd stolen from Cardiology, since they weren't using it much. Took me back to my own days in a hospital, that did. Then she asked me to help our girl disrobe, our common nursehood and my position with her in the home brushing right past any societal squeamishness toward a grown man doing so with a young girl, thankfully, since she'd also been unhappy about the thought of more strange nurses doing such things with/to her.
+
+### 25541695  ###
+
+I helped her, with curtains drawn around us, to change out of her clothes and into a gown, tying it up in the back...then there was a small debate about whether her prosthetics could stay on or need to be taken off...she wasn't very happy at that possibility. I argued on her behalf, pointing out that it wouldn't affect her BP or any other readings pre-procedure, and that it'd do just the opposite, in fact, helping her stay calmer and more relaxed, instead. In the end, I won out, and on they stayed. Next came the cuff and the finger-clamp, which aren't much fun, with both her BP and pulse being a bit high as expected, but didn't last too long, as they were only preludes to IV insertion to the back of the hand, anyway. Thankfully, Kiffy was an old hand, and a good one, too. I mean, our girl doesn't like needles, particularly, but she's had enough of them that she isn't going to freak out, either; all in all it went as smooth as could be expected, with a smooth thrust, a wince, and an all clear. She got taped up, hooked up to an IV for some fluids (she'd had to fast since five the day before, and nothing to drink since midnight), and then we more or less chilled for a bit.
+
+### 25542193  ###
+
+It seems that her specialist was MIA, so the nurses that'd be handling the procedure showed up and introduced themselves (Lorraine, and, um, the other one escapes my memory, sorry lady), while the junior doctor came in as well, a young Asian woman whose name I cannot remember either, for the life of me. She ran through the checklist of allergies, previous surgeries (that took a while), medications, etc. I did my best to provide the answers, having studied up on her charts to memorize the exact list of procedures she'd been through already, though I already had her meds occupying grey matter real estate. She isn't allergic to anything, so that wasn't any trouble, at least. The doctor wandered off again, while an additional bag of cipro was added to her drip just in case, to provide a safeguard against infection, one of the risks of the procedure. We played some more Ouendan for another twenty minutes or so, trying to keep her mind off of what was coming up, a second reading of her BP and pulse revealing she was still rather anxious, if not in critical levels just yet.
+
+### 25542780  ###
+
+Finally, the doctor manifested, a guy in his mid-forties that looked about as bland as anonymous could hope for, strolling in and introducing himself before he even layed eyes upon her behind me, was I was sort of between her and the door. He extended his right hand forward just as he did so, then it sort of hung there as he took her in, and apparently remembered just which of her hands were missing. Then she did her awesome, and silently raised her myoelectric right hand in return, and moved to slip it into his, for a shake. I think she squeezed just a bit harder than she 'should' have, really, from the slight wince I saw on his face, but not hard enough to pulp or anything (a metal motor-powered claw underneath cosmetic sheath can do a fair amount of damage, even if it's little-girl sized). Better than throwing her DS at him, so I'm thankful she restrained herself to a minor protest, really. That done, he said something about seeing her again in a bit, and quickly walked back out, rubbing his hand a little as he went, and I could swear I saw her smile a little out of the corner of my eye as he did so. And then, within a few more minutes, it was time to go...
+
+### 25543463  ###
+
+The side-rails came up, I stowed our DSs (DSi? DS as in Ninja?) away, and it was off to the procedure room. She managed to stay very well composed, all things considered, as we wheeled down the hallway, but that changed once we got into the room itself. Said room was dimly lit, had a large lamp above the bed, an imaging robotic arm at one end of it to slide up and surround her, and assorted surgical paraphenelia (barring actual sharp cutty tools); all in all, it looked VERY much like an actual OR. Poor girl just started to approach freaking out, her breathing speeding up, fidgeting, eyes (well, good one, but the bad one was moving too) looking back to the door we just came in for escape...I could practically hear her heart thudding in her chest from a foot away. I squeezed her hand with my own, where I'd been holding it since we started moving, and murmered soothingly as I leaned down beside her, telling her it'd be all right, that I'd be right here...and stroked her hair with my other hand, trying my repertoire of nightmare tactics, short of giving her a hug.
+
+### 25544093  ###
+
+The two doctors did their best to ignore all this, going over some forms and a computer in one corner of the room, while the two procedural nurses looked concerned, but seemed to get that I had some idea what I was doing, so they just hung back. It took a few minutes, but she eventually managed to calm herself down, to my pride. I helped lift her up and over to the procedure table from her bed (a fully-limbed person scoots over themself, but not really feasible for her); the IV line was adjusted, somewhat unusually in her case as they're generally placed into the right hand, and I helped her shift herself onto her stomach (the other nurses kept using 'tummy', but she's had a distaste for 'childish' language like that for a while now, so I won't use it), her head turned to the side, facing the right...not the best position for her, eliminating her peripheral vision entirely as it did.
+
+### 25544737  ###
+
+They 'hooked up' her nasal oxygen tubes as we fine-tuned her body position...they wanted to bring up the imaging arm around her, but I took a quick break from holding her hand to have a word with them 'aside', telling them it really wouldn't be a good idea while she's conscious...after a couple of stories about her place in the accident and an attempt at an MRI in the past, they agreed to hold off on that. I resumed my place at her side to her right so that she could see me, my arm stretched up and over her to hold her left, as the Jr. Doctor decided that a spray to her throat might be a good idea. I played a bit of twisted to clear the way, and she administered a numbing spray to our girl's open mouth via her WD-40+spray-tube container, which, judging from the expression she made, tasted horrible. Fortunately, perhaps, it also distracted her from one of the nurses adding the sedative cocktail to her IV from three different syringes, her lack of peripheral vision and activity elsewhere keeping her from noticing and beginning to panic over the upcoming sedation.
+
+### 25545778  ###
+
+I was still stroking her hair and holding her hand as the effects began to take hold; trying to stay the center of her vision, to block out the doctors putting on their coats and masks, and other unnessecarily worrying images...she was slurring a bit due to the numbing agent by then, but murmered a 'Feel sleepy...don' go...'...and her eyes slipped shut just as I was telling her 'I promise'. The procedure went as well as could be hoped for, with my donning a mask as well and staying out of the way to her left to hold onto her hand, as the nurses pointed out that, even sedated, a patient that isn't comfortable will shift around, which is a bad thing...and in this case, my letting go might just do so. The fact that I'm a professional as well probably helped with that, so yay for 4 years of school! The specialist seemed to be good at his job, at least, and his hand wasn't mangled, thankfully, so no messups due to manual dexterity on his part. Once it was over, she was wheeled back to the recovery room, and remained 'asleep' for another two hours before she first stirred.
+
+### 25546844  ###
+
+She only woke up for a minute or so, disoriented and still quite groggy indeed, turning her head slightly to look at me, asking me if it was done, to which I replied that it was, and she should sleep some more, it was all finished, all good. She nodded a bit at that, sleepily, and closed her eyes again, drifting off. She slept for another hour and a half after that, various other patients coming into the room after their procedures, nurses coming and going, prepping patients and helping discharge them; her doctor came in and said that they'd be examining the results and getting back to us with answers 'soon'. Not exactly Team House speed here, but then, it's not the most realistic show at times anyway, as much as I may enjoy it. He said she could go when she was ready, then strolled back out again, la de da. She finally woke up and was more or less coherent, letting go of my hand to reach up and rub her eye tiredly, looking more or less all right, being a bit out of it aside. Happy to see this, and with the blessing and IV-removing of Kiffy, I helped her get dressed again, and with a 'Let's go' from her, helped her into her chair, and out we went into the spring sunshine.
+
+## Interlude  ##
+
+
+### 25547458  ###
+
+We did some things after that...but I'm not sure I'm ready to type all of that out just yet as well, maybe in a bit.
+
+Any questions in the meantime, /b/? If I missed you earlier and you MUST have an answer, you can repost, because I'm not crawling back through the thread for each of them, sorry.
+
+### 25551615  ###
+
+> _Is Nurse-kun storytime over?_
+
+I'm still here, just not telling part 2 yet. Need to make dinner and such rather than saving it for too late in the evening as I tend to.
+
+## More to the story  ##
+
+
+### 25553684  ###
+
+Anyway, enough of this aimless faggotry, I'll try and relate what happened after we left, now. Disclaimer: I made one thing up. (This thing applies to part 1 as well). So, we'd left the hospital, into a pleasent spring day, sun shining without being overpowering. The van from the facility was waiting for us, so we loaded up, and headed 'home'. However, once there, as I'd cleared ahead of time, rather than depositing her back in her room, we headed for my vehicle, and off into the day, not even noon yet, still plenty of time to make it a pleasent one, not just an ordeal.
+
+### 25554657  ###
+
+We headed for a park that wasn't too far away, where we'd been just a few weeks earlier, but which would hopefully be a bit less crowded than before, lacking cherry blossoms this time around. Thankfully, it turned out to be just that way, and I parked, then stepped out and moved to unload her chair...
+...when she stopped me, having opened her own door, saying she wanted to...walk, instead. I was a bit alarmed, unsure she was entirely up to it, particularly after having just been under sedation a few hours earlier. But she had a certain look in her eye that I've come to recognize, so I knew that refusing her wouldn't end too well. As such, I just sighed and shrugged with a smile, shutting the door on the chair and moving to hers instead, and extending a hand to her, as if I were helping a celebrity out of a limo onto the red carpet.
+
+### 25555359  ###
+
+She seemed somewhat amused by this, and took it with her right hand, reaching up with her left to take tight hold of the shithandle, then swivelled to extend first her right, then her left, foot out over the side of the door. Then, after a moment of concentration and focus, she pulled herself up with her left hand, pulled against my own with her right, and used her tensed abdominal muscles and thighs to help pull herself up to an upright position outside the car...and wobbled...and steadied herself, standing in triump, with a small smile as she did so. Smiling rather larger myself, fuelled by the surge of pride I felt, I shifted to her side and helped her take a step out of the way of the door, moving to close it behind her, my right arm linked with (being clung to by) her left. I made a little joke about her not slacking off even when her rehab was cancelled for the day, to which she replied by (I think) jokingly saying it'd be good training for her, walking on more 'real' ground.
+
+### 25556592  ###
+
+And with that, off we went. We stuck with the bike path for the beginning, as she hasn't had any real practice walking on grass or dirt just yet, and didn't want to trip her up (perhaps literally) before she'd been 'warmed up'. I stayed by her left side, with her hanging onto my arm with her good one and her artificial one as well, moving at a slow, but not glacial, pace, which I matched as best I could. But she was walking...walking on a warm spring day, outside, without a half-dozen people ready to pounce if she fell. Just the one, instead. We garnered more than a few stares from the people that we passed by, which she did an admirable job of mostly ignoring, as she did the whispers from the closer ones, despite her excellent hearing. She didn't leap on any of them to rip and tear, didn't throw my wallet at any of them, didn't pause to say things that drove them into a foaming rage. Her self control and dignity brought up an even bigger lump of pride into my chest than seeing her stand did, and helped quell my own desire to shout certain unpolite things at some of them, myself.
+
+### 25557940  ###
+
+Well, we only got about a mile or so before she started getting tired, which is quite understandable, considering she uses about three or more times more energy just to walk than I do. Fortunately, it was near a relatively isolated spot, free of gawkers or jerks, so I suggested we head to that spot, off the beaten path, to rest a bit. She agreed, then struggled up the slight incline of the grassy hill, clinging to me more tightly for support, and we eventually made it up there to the slight dip behind it next to a tree, and down we (carefully) flopped, onto the just-starting to re-green grass. I took off my jacket and bunched it up a bit for her to use as a pillow, as we laid on our backs, and stared up at the sky, her breathing hard, me being an empty-headed boob.
+
+### 25559536  ###
+
+We spent a good ten minutes or so just laying there, watching the clouds drift by, I folded my hands behind my head, then realized it might be insensitive, somehow, to do so...and glanced over to the side at her, only to see that she'd gone and done the same, artificial hand underneath her good one; having caught my look (as I was to her left, in her peripheral vision), she looked to me as well, and as I smiled ruefully, feeling kind of dumb, she actually...laughed. It was wonderful, even if it only lasted for a couple of seconds, but it was a laugh, unforced and genuine, and it lit up her whole face in a way the sunlight couldn't do on its own. That just led to my grin going from rueful to uncontrollable, and I started laughing as well. She only laughed for that moment, but I couldn't keep it quite so brief; she just watched as I got it out of my system, smiling faintly all the while. Once I did, looking a bit embarassed, I told her how proud I was of how brave she'd been that morning, how I'd known she could do it...it was just a matter of it actually having time to happen to prove me right. She looked somewhat embarassed at that herself, then, flushing a bit, then after a moment of silence, simply thanked me for keeping my promise.
+
+### 25561036  ###
+
+We lapsed into silence for a while longer after that, just watching the clouds drift by, each of us lost in our own thoughts. Finally, after about ten minutes more, she moved to sit up, looked over at me, and said 'Let's go'. Remembering her use of the same words that morning, I just smiled and nodded, moving to stand up and brush my butt off (stray dead grass, you see), then turned to face her...not making an offer to help, knowing her as I did, but just waiting, receptive without being too obvious about it. In response, she raised both her own hands up toward me, and I nodded, then took them...and with a quick but gentle tug, pulled her right up onto her feet, as she kept her legs straight and just arced right up onto them. I knelt to retrieve my jacket as she did some brushing off of her own, then slung it over my shoulder, and offered her my hand again. And off we went. I asked her if she'd like to just retrace our steps, or take the long way around; she thought about it for a bit, then seemed to straighten a bit, and picked the 'long' way, which would be about a mile and a half or so to get back to the car. Since we still had a fair amount of time left before she had to go 'home', I figured that we could take a few more rest breaks, if need be, so I just smiled and nodded.
+
+### 25561768  ###
+
+Thankfully, this route was actually more level than the initial path we'd taken, placing less of a strain on her, due to her less than robust robot knees. We just took our time, walking through skeletally dappled areas underneath barely-blooming trees, paused to take in some of the plaques on benches dedicated to philanthropists that have helped fund the park in the past, and around the halfway mark, took a seat on one of those benches and watched a family of ducks swimming on a pond. She looked as relaxed and, well, happy, as I've seen her in a long time, leaning against me, which was what made me notice that the temperature had dipped a few degrees. That noticed, I retrieved my jacket from its position, and slipped it around her shoulders. She didn't say anything about the act, which was fine by me, but didn't sit up on her own again, either. Guess I was just a convenient pillow.
+
+### 25563071  ###
+
+After a few minutes more (we'd been there for around ten or so already), we got up once again, with her managing to do so on her own, as it's considerably easier going from a sitting position with armrests and a back and such than from laying on some grass. She moved to remove my jacket to return it to me, but I held up my hands, palm outward, telling her that if she was cold, she could keep it, if she liked, since I was already wearing a long-sleeved shirt...she seemed conflicted for a moment, I'm guessing weighing whether she wanted to seem dependant or not, then finally shrugged and offered a casual smile, simply saying: "Thanks.". We started off again onto the return leg of the trip, making it about a quarter mile or so, just past the tip of the pond in that direction, when I felt the first raindrop hit. Mentally cursing inept 'meteorologists', I increased my stride without thinking about it...and almost dragged her into falling onto her face as she was hanging onto my arm, but her legs couldn't quite keep up with that speed increase, letting out a small startled cry. I stopped immediately and moved to help her steady herself again, apologizing profusely...and she said it was all right after a moment, though I could see that she felt at least a bit bad about it, about the fact that she *couldn't* keep up suddenly...
+
+### 25564216  ###
+
+Apologizing one more time, and telling her it was my fault entirely, I asked if she was ready to go again, and with a small nod as she kept looking down at her feet. I felt like crap, but didn't want her to be exposed to conditions like this when she just got out of the hospital this morning, reasons irrelevant, I started walking again, a bit more brisk than our earlier leisurely stroll, but not greatly so...and she was able to keep up with me, though just a glance and working ears suggested she was pushing herself to do so, even as the rainfall continued to grow in intensity. We made it about another quarter mile before her slowing pace and labored breathing made it clear she was reaching her limit, even as the shower was beginning to become a downpour...so I slowed, then stopped. And moved to kneel, turning my back toward her. "Hop on, I'd like to give you a ride.". I tried to phrase it so that it was something I wanted to do, rather than something I needed to do because of her 'weakness', turning slightly to face her and smile as I did so, despite the water pouring down my face, which had already soaked both of us; leaving her looking both waterlogged and somewhat miserable with both exhaustion and a feeling and having 'failed' somehow...
+
+### 25565698  ###
+
+It was hard to tell, as the rain was pouring down her face just as it had been down my own, but I think she was crying again, though she was making a heroic effort not to. Her good fist was clenched tightly enough at her side to turn her knuckles white...even her myoelectric hand was clenched, powered by subconciously symmetrical muscles and impulses. It was hard for me to maintain my own false composure, but I drew on my one drama class from high school, and smiled cheerfully, half-turning, then reaching out to touch her cheek gently, applying a very light pressure to have her look up at me again. "Please?", I said. "It'd make me really happy." She averted her eyes to the side, biting her lip...then finally gave a ghost of a nod without saying anything, and I turned back again, shifting a bit to be right in front of her; a moment later, I felt a mismatched pair of arms hooking around my neck, and reached back with my own, to a pair of plastic and flesh thighs, then stood up, and started walking again.
+
+### 25566578  ###
+
+I could feel her breath on my neck and left ear, her head tilting to that side naturally, her hands clutching at my shirt to augment her grip, while I adjusted my own hands further up and back to provide better support for her, particularly since her torso and my own aren't exactly the same length. I was already walking at this point, feeling her heart beating like a caged bird against my back and the rain dripping off her hair onto my shoulder, when I asked her if she'd like to run. She drew in a shuddering breath when I said that word, her heartbeat stepping up the pace...and as soon as I heard her whisper "Yes", I did. I ran as quickly as I could without risking falling onto our faces, faster than I had since I was in college, as fast as I could go, for her.
+
+### 25568055  ###
+
+Somehow, miraculously, I managed to make it back to the car without falling and breaking my, and or her, fool neck. I'm not particularly well coordinated, so I can only guess that the fates of fluid dynamics were with me that day. When I finally got there I bent forward at the waist slightly so she could rest on my back, fumbling in my pocket for my keys and door opener. I managed to beep them open, then finally moved to kneel again, and let her slip off me to lower herself to the ground. She was still breathing a bit hard when she stood on her own, her legs wobbly. I looked her over for a moment to make sure she was ok, feeling her wrist to find that while it was elevated, her pulse wasn't at dangerous levels, then brushed some of the stray droplets off her bangs, before I moved to help her into the car, then hustled around to take my own seat.
+
+### 25569232  ###
+
+Despite the lessons my father taught me when I was a callow youth, learning the rules of the road, rules I've followed diligently since then, 10 and 2 in particular, I drove one-handed that afternoon. My left hand had to suffice, a lesson I'd learned from her, as my right was busy, wrapped up around her own, as she curled up in the passenger seat; robotic knees, plastic shins and feet drawn up atop it, her eyes shut as usual, but not quite so tightly as usual. We arrived at the home some time later, taking longer than we'd spent travelling from it to the park earlier, then just sat in the parking lot for a couple of minutes in silence. Finally, I broke it, and my own indecision, by leaning over and placing a kiss on top of her still-wet head. I didn't say anything, because I felt it'd sound dumb no matter its content, but just moved to get out, gently releasing her hand, to fetch her chair.
+
+### 25570100  ###
+
+I got it out and unfolded, then opened her door and unbuckled her...I could see the distaste in her expression at the sight of the chair, but I half-jokingly told her that I might get in trouble if they saw me letting her walk in front of them, even if I knew she could. She seemed to accept this, sighing a bit, with a touch of theatricality, then assented, and let me help her take her seat. From there, I wheeled her inside, both of us somewhat more wet than a dash from the car might indicate, as our friendly neighbourhood Indian Security Professional noted with a laugh, then we headed straight for her room, leaving a trail for janitorial to mop up in our wake. My colleague on duty at the station made a comment about going swimming, and we were back in her room.
+
+### 25571364  ###
+
+Since she was back in the home, she was now legally under the care of her nurse on duty, rather than me...so all I could really do was gather a few towels from her bathroom and place them on the edge of her bed before helping her up and over to take a seat there...no helping her dry off, even I'd be the one in that position in just a few hours. Still, I did use the corner of one of them to dry her face and ruffle her hair just a little...and offered a smile as I did. "You're important, you know that?" She looked faintly embarassed when I said it, not making much of a response, but that was fine by me, and I just kept smiling, then told her I'd see her later, that if she felt tired, she shouldn't feel bad about getting some more sleep. And, finally, that'd I'd had a good day, and I'd hoped it'd been at least not a bad one for her, then stood up to get going, so her nurse could come in and help her dry off. I paused, then, as I felt a slight tugging on my pants, glancing down to see it was her good hand, with her looking up to me. And then, after a moment's silence, "...I did. Thanks...again." I just smiled again, and brushed a tenacious lock of wet hair out of her eyes and behind one of her ears, then headed out.
+
+### 25571665  ###
+
+And...well, that's about all the salient details of that. I hesitated in telling it, thus the gap between the two, because I know it sounds sappy and, well...but all the important things did happen. And I didn't put any words into her mouth that she didn't say herself. Anyway. Um. Yeah. I suck.
+
+## IRRELEVANT SHIT I'M POSTING ANYWAY, FUCKERS.  ##
+
+### 25548373  ###
+
+\>\>25548141 _(Ouendan 2)_
+
+Already ahead of you there. Have two copies preordered. But thanks for the thought!
+
+### 25575066  ###
+
+> _do we know Nurse-kun is American? for all I can see, he could be from Canada_
+
+Is this about how I spell some things? Because a friend of mine mentioned some people playing Jr. Detective with that. Okay, here's why: My mom is from England, originally. She and my dad got married shortly after they met when he travelled there in the early 70s, and they moved back here afterward. She taught me how to read, and we've all picked up some queen's eccentricities: I actually nursed them (haha, nursed!) when I was in school and teachers would 'correct' me. Grey! Armour! Theatre! Blow me!
+
+### 25546100 and 25547514  ###
+
+> _Dear Nurse-Kun,_  
+> _I have recently noticed that the front of my underwear (on the inside) has orange-yellow crud in it. These are not the simple yellow stains that one gets from not shaking enough, there is sometimes actual crust. However I have not had any pain during urination, and have not observed any actual discharge happening. This crust has no smell, I've never actually seen it when it's gooey, and has a very slightly salty taste, I am inclined to not think it is semen because it doesn't taste like semen and the stains aren't similar to any other semen stains I've ever had. Please help._  
+> _Anonymous._  
+> _I am extremely embarrassed to say this. But this is totally anonymous.. The only sexual partners I've had in 4 months are my dog and my little sister. Can I get sick from either of them?_  
+See a doctor. Bring your sister with you. They totally have a patient confidentiality thing, so it'd just be between you three. The dog isn't much of a threat, due to most diseases not being very inter-species interested.
+---
+> _Nurse-Kun,_  
+> _Thank you, Do you think if my sister told *HER* doctor he'd see me too? I am too old for medical coverage._  
+> _Anonymous_
+
+I'm sure he'd love to see you if she told him! Pediatricians are very compassionate towards all other ped-types.
+
+### 5547275  ###
+
+> _Dear Nurse-Kun, _ _I am incurring enormous bills from keeping my father in an assisted living facility. I honestly had only planned on him being alive a short while longer, but he was a tough old man who served in the 5th Ranger Battalion in Europe and was a decorated and respected war hero. My wife has been nagging me to get a bigger house and is on the verge of leaving me if I don't. I really need him to die and have taken to switching out his Urocit-K, Norpace, and Razadyne with over the counter supplements, painkillers, and antihistamines. For awhile I even replaced his insulin with dextrose I purchased at a farm supply store. This seems to have done VERY little, He's remained sharp, active, and hasn't complained or gotten sick at all. His doctor did however raise questions about his high blood sugar and the ineffectiveness of his "insulin", which prompted me to switch it back before someone noticed. He's so tough! Please Nurse-Kun save my marriage for my little boy's sake. How do I kill dad without anyone finding out? _  
+> _Anonymous_
+
+You can't. He's made a pact with Nurgle, and will be there to laugh over your pathetic weakness while raising your son to be the real man you couldn't be for a long time to come.
+
+Sorry, dude.
+
+### 25547365  ###
+
+> _Nurse-Kun, if you're still here, how would you respond to rumours of your apparent encounter with a /b/tard whilst out with...her?_
+
+That was no male nurse and ampu-tan...it was a weather balloon.
+
+A weather balloon.
+
+### 25547677  ###
+
+> _Nurse-kun plays 40k? Shit sux._
+
+Just a few times in college. I don't have the time or money or friends interested in it or willingness to put up with catpiss men in gameshops to do so now. /tg/ is good for some time to waste every now and then.
+
+### 25547831  ###
+
+> _Nurse-kun,_  
+> _Your writing and story telling skills are exceptionally brilliant. What is your writing/educational history? And as such a great writer, why are you working at a nursing home?_
+
+Eh, they're really not that great...I mean, I'm just trying to put into words what I've experienced and felt. I took some english courses in college and did all right with it in highschool, but it's never been my big 'thing', you know? And I'm working in a nursing home because I'm a nurse. Uh...y'know? (Ok, why I'm in the home rather than another area of the field is another story, but not one I'm going into right here)
+
+### 25547932  ###
+
+> _i think if there ever was a random encounter with a /b/tard nothing would happen,they would watch from afar if anything._  
+> _if it was me, I'd take pics with my camera cellphone for sure. and not post them on /b/, but keep them for my own personal perusal._
+
+Well, I have pictures, but they're not getting onto /b/...
+
+### 25548010  ###
+
+> _if amputee-chan wasn't cute and pretty but instead deformed and horribly ugly-looking, or old, do you think you'd even give her a passing thought? _  
+
+I like to think I would. But she isn't. So I can't really say for certain, can I? I make no attempts to paint myself some sort of saint, either to myself or to others...
+
+### 25548094  ###
+
+> _also,a gift idea,maybe she'd like a copy of the new Pokemon for ds?_  
+> _i don't think it'd be to hard to handle,place it on her lap,she can hold it steady,and use her other arm to press 1 button at a time._
+
+I've considered it, but it seems that since I didn't preorder, I can't find a copy now. Guess I'll be waiting for the second shipment?
+
+### 25548157 and 25548490  ###
+
+> _Dear Nurse-kun,_  
+> _I've had an infection on my hand lately. It's really concentrated on the palm and it's sorta like little freckles on the skin. It's full of pus when I break one and it peels often, as in little circular pieces of skin fall off at the top of each little dot. There's probably about 50 or so on my palm and it's been spreading to ever part of my body. My local skin doctor has told me to put Topicort on it but it doesn't work. What do you recommend? Thanks, I love your stories._  
+See another doctor. Second opinions are good things. (Sometimes third opinions, too.)
+> _Aw great, another biopsy..._
+
+Sucks, but if something isn't working, you can either keep trying it and hope for the best, or try to get an opinion on whether you should try something else...medicine is rarely much fun.
+
+### 25548324  ###
+
+> _Nurse-kun is a lucky man. It must feel great to be needed by someone else. Meanwhile Anonymous wastes away in front of his computer._  
+> _God damn I envy you._  
+> _Keep up the good work._
+
+Well, I could say something about anonymous being able to go out and mentor a kid in need or volunteer or something, but who pays attention to shit like that?
+Of course, I could say that, because I've found it really is a good thing to do, not just for yourself, but clearly for others, but hey. No one can bear the weight of the world on their shoulders, but a kid doesn't weigh that much at all.
+
+### 25548624  ###
+
+> _how exactly does her prosthetic arm work? does she control it with her muscles on her stub, or what?_  
+<http://www.utaharm.com/>
+
+Best thing to come out of Utah since...well, ever.
+
+### 25548703  ###
+
+> _So did you tell her about the preorder[Ouendan 2] or are you gonna surprise her?_
+
+Surprises can be fun.
+
+### 25549089  ###
+
+> _Hey Nurse-kun, how goes the idea of adopting ampu-tan? You still considering doing it after she gets out of rehab?_
+
+The process is still ongoing. I'm scheduled for some parenting classes as part of it, and a woman from DCFS came by my place to get an idea of what my 'lifestyle' is like and such, though I (as I told her as well) plan on moving to a new place if things go well. Seemed to go okay. They're going to be interviewing my parents and such soon too. Not an easygoing life these days, but hey, it's mine.
+
+### 25549215  ###
+
+> _Dear Nurse-kun,_  
+> _Nurse-kun, we always get to hear about the exciting times you spend together with ampu-tan, but what about all the other times?_  
+> _In other words, what are the less dramatic days with Ampu-tan like?_  
+> _With Love,_ _Anon._
+
+Well, they're less dramatic. Since I can't post every day now, and people didn't like that much when I did, I can't fill you all in on everything that happens. Though the second half of yesterday was pretty 'uneventful', so I suppose you can see it there, if/when I get around to posting it later today/tonight...
+
+### 25549447 and 25550673  ###
+
+> _So, when's the Damaged Goods manga coming out?_  
+> _well, there's already a visual novel_  
+> _when's the anime adaption coming out, we should say?_
+
+A what now?
+
+> _[http://abstractnonsense.info/?page_id=8 [1]]_
+
+...huh. Well.
+
+### 25549692 and 25550221  ###
+
+> _HAY NURSE DUDE... ARE YOU ATTRACTED TO HER *BECAUSE* SHE'S AN AMPUTEE OR *DESPITE* IT? IN B4 LURK MOAR_
+
+If you mean sexually, I'm not attracted to her.
+
+Not that I expect people that believe otherwise to believe me. We make our own reality and all that, it's just a matter of how much we allow our shared reality to affect our personal one.
+
+> _Yeah, her "gymnast's body" has nothing to do with it. You're too afraid to admit that you're hard for her because you don't want all this ego-stroking to go away. Does it feel good knowing that the only reason people like you is because you're deceiving them?_
+
+She did gymnastics. You know...with her...body. I've already admitted, I was trolling a bit at first, dropping in terminology like that, the whole pooper thing, etc; using the situation I was in to try and get a laugh out of /b/, since I didn't really expect useful or helpful advice to my situation of caring about this kid, because, well, /b/. I've already explained how a friend of mine in RL, who has also frequented /b/, suggested I do so, when I was telling him about my quandry.
+
+But hey, if it helps you with your fapping to say it's all totally a lie and I'm totally a pedo, go for it. It isn't exactly going to hurt my feelings.
+
+### 25549748  ###
+
+> _Hmm. An unusual amount of saging in this Nurse-kun thread. While it's sufficiently small-scale to be from a few habitual trolls, it does mark a certain downscale in his popularity. Could this be interpreted as that the true nature of Anonymous is starting to show through, when the novelty of the story at hand is beginning to wear out? Meh, well, whatever. I just hope a decent conclusion comes out, instead of the Nurse-kun threads just drowning out into apathy over time._
+
+This isn't much saging at all, compared to some other threads. At least it's shifted to a more creative form rather than mindless cut-paste-flooding. Sage away, if you can do it in an entertaining manner, people!
+
+### 25550021  ###
+
+> _Nurse-kun, I love your threads, though I've only seen two myself. I read the rest on Wikichan._  
+> _Anyways, how much does Ampu-tan know about these threads? What do you think her reaction would be if she knew how many people followed her story?_
+
+She doesn't. And I'm not sure about that, really...she doesn't like...attention. I mean, she seems to enjoy my paying attention to her, but that's more because it's not just my job, or because she's a 'freak' or something...attention of those sorts, she doesn't enjoy. So form your own conclusions?
+
+### 25550400  ###
+
+> _I can see that knowing her paedophile doctor is bragging online about what a great person he is might be a little bit uncomfortable for her. But hey, who cares about her, right?_
+
+HEY! STOP SPREADING YOUR FILTHY LIES, YOU PIECE OF SHIT!
+
+I'M A NURSE! A NURSE, YOU ILLITERATE FUCK
+
+### 25551049 and 25551854  ###
+
+> _Nurse-kun, I think I'm pregnant._  
+> _Home pregnancy test says negative, but I'm nearly continuously nauseous, hungrier than usual(which usually results in puking), really tired all the time, and when I poke where my uterus is, it feels weird._  
+> _Seeing a doctor = good idea?_
+
+Not sure how to phrase this delicately, but this is /b/, so what the hell: Are you so fat you wouldn't have noticed if you DID get pregnant?
+
+If not, and those symptoms continue, you probably should. Heck, even if you are, and they continue, you probably should.
+
+You probably should.
+
+> _If I am I'm only like two months along, a bit early to show. `:P`_  
+> _I'll go see a doctor._
+
+Sounds like a good idea. The home-tests are hardly infallible, after all, better to know early than too late, after all, as it's a rather large 'thing'.
+
+### 25551471  ###
+
+> _Nurse-kun, what do you think it is about your stories that made /b/ have a heart?_  
+> _Is it the writing? Is it the good you're doing for this girl?_
+
+I'm not sure. Why do we have Caturday? Why do we not see more Yotsuba porn? It is a mystery.
+
+### 25551977  ###
+
+>  :: I love Nurse-kun threads. What really draws me into them is the fact that it has the "ideal reality" aspect that makes many tales great. The characters seem to say the right things at the right time, as if it were out of some sort of novel; however, the emotions of the characters are very real, so it doesn't have the sort of contrived, cliche effect that such dialogue would have in many Hollywood movies today. I'm not accusing Nurse-kun of having made up the story, instead, this seems to be a testament to his skill as a storyteller. Because of this, I imagine Nurse-kun to be a very charismatic person face-to-face. Anyone else get this impression?_ _  
+>  _No, I get the impression that he's deliberately manipulating the facts of the story in order to make himself seem better than he really is. If you can't see that then you've been drawn in by his manipulative bullshit._
+
+Well, I don't think I'm doing so, personally...I mean, I'm not perfect, but I don't go around kicking kittens and mugging nuns, either. I don't abuse my patients, I don't act like a dick with my coworkers, I'm not stealing my sister's car.
+
+### 25552054  ###
+
+> _90% of rational people believe there is nothing inherently immoral with pedophilia. 97% of rational people censor their own opinions because they know speaking the truth will get them sent to jail or fired from their job._
+
+ZA SALIENT REPLY ZA SALIENT REPLY
+
+[LOOK TO THE RIGHT, FAGBAGS.]
+
+### 25552235  ###
+
+> _hey Nurse-kun, _ _are you planning to insert some more fanservice occasionally like the suppository story? Or have you decided against that for ethical reasons or for fear of being more labeled as a pedo._  
+> _i thoroughly enjoy your tales by the way. hope everything works out for yor two._  
+> _and everyone who really things nurse-kun wants to pooper amp-chan..common everyone knows the whole pedo thing on /b/ is a big joke....OR IS IT?_
+
+Well, that was more or less a one-time joke inspired by a real-life situation that I knew could have different meaning on 4chan. I don't generally make things up, so 'inserting fanservice', well, not really. I mean, I might make a joke about something that really happened , but, well.
+
+### 25552310  ###
+
+> _as much as I read through the wiki, I could not find info on when did her accident happen. When did it? How long did she stay in the hospital afterwards?_
+
+A while back. Months. Vagueness is a defense against internet toughguys, sorry. Less than a year, I'll say in a definite way.
+
+### 25552521  ###
+
+> _oh, also, another thing that would be nice, is for you to post schedules of when you're going to be posting on /b/, so i can catch the thread. I try not to spend all my time on 4chan, but I hate it when I miss your posts!_
+
+My 'schedule' is practically nonexistent these days...I can generally manage to arrange an outing with her a few days in advance, but taking care of my dad and helping my mom is often something that can come up at any time...I've tried to keep tuesdays free, but even then, sometimes things happen, as they did last week, and this one. I suppose I could try posting a notice if I have a day free the night before, if someone plans on putting this up for 'advertisement' somewhere, but...
+
+### 25552577  ###
+
+> _Nurse-kun I'd like to say your threads really touch me personally. My girlfriend of 15 is missing 3 limbs (left arm, right arm, right leg) and while it has been a while since her accident and she's doing better, she's still struggling to live a "normal" life. I hope amputee-chan hangs in there!_
+
+Geez, really? Well, good luck and best wishes to you both then, I hope the sun shines bright on both of you.
+
+### 25552899  ###
+
+> _Nurse-kun, does she draw at all?_
+
+A little, but not much outside of therapy, and even that's grudgingly done. It's very...disturbing things, and I'm not going to try and steal one to scan for you all, if that's what you're alluding to.
+
+### 25560237  ###
+
+> _Has Nurse-kun ever mentioned specifically what instruments Amputee-chan played before the accident?_  
+> _Requesting this information from the collective Anonymous (or Nurse-kun, if he has time to humor me)._
+
+Piano, Violin, was learning Guitar and Shamisan, tried a few of the woodwinds, I believe.
+
+### 25560256  ###
+
+> _WRITE FASTER NURSE-KUN_
+
+MULTITASKING
+
+### 25560305 and 25562164  ###
+
+> _Nurse-kun, what did you make up? (In both parts.)_  
+That is a tactical secret that must be kept from spies.
+> _Ahh. So, you changed some part of the story, that, if left unchanged, would have given anonymous a dangerous detail that could give him the needed information to track you down. Right?_
+
+Mmmmmmmmmmmaaaaaaaaaaaaybe.
+
+### 25568487  ###
+
+> _Nurse-kun, when you talk to her does she ever talk about or hint at what keeps her going in life? I mean not wanting to die or just become a vegetable and not have to suffer through life anymore. What does she have to look forward to in life? All the things a normal girl takes for granted... boyfriend, social life, fun, family, entertainment; she has it horrible in every respect. Yet is still alive and still here, why?_  
+> _Also what major medical procedures have you taken part in / assisted with? Surgery? Emergency room stuff?_  
+...not really. I haven't brought it up, and she hasn't said much either, aside from the occasional darker moment in which she expresses a doubt that she has any future at all, which I do try to help with, as best I can.
+
+ICU, ER, then a stint in Neuro...then the home.
+
+### 25568589  ###
+
+> _Nurse-kun, I'm currently reading Nabokov's Lolita and it struck me that your writing style sort of reminds me of it. You should be more evil and scheming and thinking about rape like Humbert though._  
+> _Funny thing is, he also got his loli as the result of a car accident._
+
+The day I start thinking like Humbert Humbert is the day I take some .50 asprin.
+
+But Nabokov is amazing, so good taste there, anonymous.
+
+### 25570533  ###
+
+>  _Okay, Nurse-kun, I know this is fucking old. I'm the guy reading the archives. But I felt I should add this:_
+> >  Would you be interested in a girl/woman missing three limbs and an eye, even if she used her arm prosthesis really well, covered up her leg prosthetics with stockings or something and was good enough with them to walk or even run almost normally, was good enough with makeup to cover the scar over her eye...? Excluding 'god stumps maek me hard' answers from the sickos out there, asking the non-fetishests here...would you be romantically interested in someone like her, with a great body (that's still intact) and a more or less healed psyche and a fascinating mind? And not just romantically, but sexually, as well?_ _  
+>  _That's from the archives. I just thought I'd mention that I semi-dated a girl in highschool that had a dead arm... I don't know the medical term, but she couldn't move it by itself. Suffice to say, it didn't cause any relationship problems or anything of the sort. So there certainly is hope._  
+>  _Sorry, I'll shut up now._
+
+No, thank you for answering it, even now. Really.
+
+### 25571512  ###
+
+> _My actual question is, does it snow there in the winter? Well, you don't really even have to tell me that. Just say if it had or hadn't snowed recently when you first met her._
+
+Yes.
+
+### 25571801  ###
+
+> _QUESTION BE-DUMP-A-BUMP!_  
+> _Here's a question; you've said she was a really smart kid, gifted school and all, but did she enjoy learning? I know you'd have to get her some (home)schooling if the adoption went through, but have you thought about bringing educational books or something to her? She might really enjoy learning in her off-time; It could give her a boost of small pride being able to tell you even more triva, and it'd help for when you get her back into actual school-work._
+
+Yes, she's chosen a number of educational books during our trips to the library, and we included a few in that initial christmas batch, and in smaller ones I haven't really mentioned since then. She does enjoy learning, and if she enjoys something...well, I try and get it to her, or her to it.
+
+### 25571892  ###
+
+> _Has she been in any other fights? Did she ever make up with the girl from the pool?_
+
+Thankfully, no. And not as yet...they've shared the pool again on a couple of occasions, I believe, but they've just kept a distance and apart in general, save for a few glares, according to the grapevine..
+
+### 25572047 and 25573852  ###
+
+> _Hey Nurse-kun,_  
+> _I saw your last thread, but didn't get what was going on at the time. Then I found the wiki and read most of it. You're awesome, keep up the good work. I hope things turn out well for you two._  
+> _btw, I read the quote that >>25569531 brought up from the the archive the other day..._  
+> _You do realize that by the time she's of legal age, you'll be nearly 40, right?_  
+Hey, MAN...I'd only be in my mid-thirties...or so. HALF A DECADE IS A BIG DIFFERENCE.
+...kidding. Well, not about my age, but, uh. I'm not old! I'm still hip to your pokeymans and ipods!
+> _I didn't say you were old NOW and don't worry, we'll all get old along with you (how weird that will be...all us current /b/tards will be in our 30's) but, uh, it's going to happen eventually...it's not like anyone has avoided it thus far._  
+> _All I'm saying is that when she grows up, she probably won't be interested in you romantically. You'll be more like her father. This will be dramatically reinforced by the age gap between you...she's 7, you're in your mid-twenties. That's a huge gap._
+
+I know that. And that's fine, since I'd think it'd be pretty damn weird/creepy to start some sort of romantic relationship 10+ years down the line of caring...for her. I was just making a joke.
+
+### 25572182  ###
+
+> _So I can go to bed now? I have to get up in 3 hours ;_;_  
+> _See you next time awesome nursekun!_
+
+Goodnight and good luck, anonymous.
+
+### 25572626  ###
+
+> _[Various people volunteering to marry Nurse-Kun, in an "I'M Xy.o, GENDER, FUCK ME HARD" sorta way]_
+
+I...ah...um...shit, I'm a CLAMP character.
+
+### 25572780  ###
+
+> _Nurse-kun, you still hanging around, or did you go to bed as well?_
+
+No, no, I'm still here...for another half hour or so yet, before I need to head in to work...
+
+### 25572933 and 25573206  ###
+
+> _STOP POSTING SO WE CAN GO TO SLEEP YOU SICK BASTARD_
+
+DON'T BLAME ME FOR YOUR OBSESSIVE TENDENCIES.
+
+> _STOP POSTING SO WE CAN GO TO SLEEP YOU SICK BASTARD (x2)_
+
+MAKE ME.
+
+### 25573431  ###
+
+> _Need some help for my fapping. Do her prosthetics resemble dolljoints at all?_
+
+See \>\>25548624
+
+Her legs don't, particularly, since they don't have cosmetic shells, but with them, they would, somewhat.
+
+Plz don't fap to her.
+
+### 25573492  ###
+
+> _One last question if you care to answer._  
+> _Are you ever going to share with her how you've shared her story with the internets? Sure' you might not want to link her to the original post, and there's been a great deal of fucktards in these threads, but you two's story has also touched alot of people in a very profound way. I dunno, if she's ever feeling unimportant, later in life (if you adopt her) it might be good for her to know?_
+
+Not in the forseeable future, anyway.
+
+### 25573572  ###
+
+> _Dearest nursekun._  
+> _Question:_  
+> _When you manage to get through this whole adoption process and everything is said and done, do you have any plans on how to get her back into something close to a normal life or as normal as can be._  
+> _i.e. School and such_  
+> _If she is indeed as smart as you say, school is something she can put focus on, since if she's as smart as hell, she most definitely has a future. She can be a sort of loli version of Stephen Hawking._
+
+Of course. I'd hardly try and free her from one cage only to put her into another one. And I'm sure she could kick Hawking's ass given some more practice, so long as someone doesn't invent a flying chair before then.
+
+### 25573983  ###
+
+> _>Plz don't fap to her._  
+> _Man, that ship sailed with your first post to /b/ about her._  
+> _Dun worry nurse-kun, people talk about this, but not many actually do it. It's just to mess with ya._
+
+Well, this is /b/. I may try to avoid thinking about it, but I did have to accept the theoretical likelihood of it when I posted here. Still. Ew?
+
+### 25574076  ###
+
+> _Well Nurse-kun, I've stuck around as long as I could, but I REALLY need to start studying for a final tommorow. I wish you two all the best, and hope the night goes well._  
+> _Any clue when we might be getting a new update? and is anybody saving this right now?_  
+> _Either way, thanks again Nurse-Kun, and good luck._
+
+Not sure, considering my schedule these days...or lack thereof. I generally try for tuesdays, but things happen. Even knowing for sure the night before is never a certainty, since I'm not a writing machine, I need to be in a certain mood to do it at all well...I'll try and figure it out?
+
+### 25574103  ###
+
+> _You think there is any chance at all she knows what is going on? She can't have internet access(I presume) but children are more perceptive than a lot of people realise, she's got to be wondering 'why does this guy seem so interested in me'. Who in her situation wouldn't ask why you were doing this._
+
+What do you mean by 'what's going on'?
+
+### 25574206  ###
+
+> _If the Simpsons' rendition of Hawking (larry flint lol) is any indication, I'm sorry to announce you that she'd get her butt kicked by Super Hawking._  
+> _I'm hardly impartial though, since I'm an astrophysics nut and kind of idolizes the guy, as much as I can a scientist, anyway._
+
+Well, it was just a theoretical situation, of course. They'd probably get drunk and swap stories about humiliating various ablebodied people.
+
+### 25574403  ###
+
+>  :: question: why do you post on /b/ at all when you could be posting somewhere where you actually get constructive comments?_ _  
+>  _on /b/ people won't log your ip address and call the cops_
+
+Pretty much, bad as that might sound.
+
+### 25574459 and 25575296  ###
+
+> _Oh, and btw, it seems to me that stephen Hawking is the perfect example of what you can do, against all odds and disabilities. If she doesn't know about him, she seriously should._  
+...actually, I bought her a copy of A Brief History of the Universe as part of her Easter Basket...
+---
+> _Wow, really? I must admit that it's a really tough read for a 7 year-old, especially if it's her first contact with physics/astrophysics and relativity, but books don't fly away, she'll still have it when she's a little older. Kudos!_
+
+She's still working through it, but she's said she really enjoys it! And we had a math talk once, and frankly, she's better with the stuff than I am.
+
+MATH IS HARD. LET'S GO SHOPPING!
+
+### 25574523  ###
+
+\>\>25574459
+
+Or was that Time? God, I'm retarded. His book, anyway.
+
+### 25574652  ###
+
+> _You've ignored my post long enough now_
+
+Uh, sorry, I guess I just kind of missed that, I wasn't ignoring it. And I'm not really in a position to get into a discussion on literature right now, since I need to leave the house in about ten minutes at most; I'm sure I wouldn't offer very interesting answers, anyway. Maybe next thread. Also cocks.
+
+### 25574822  ###
+
+> _Good call, though I do believe the cops with sympathise with the situation and hopefully understand what perversions Nurse-kun has written is solely for the sake of entertaining /b/_
+
+I have nothing against cops, I have an uncle that's a cop, but I know the system is hardly structured to believe in best intentions and such. A lack of naivete is something I can plead guilty to, though I like to think I'm not entirely cynical yet...
+
+### 25575118  ###
+
+> _Nurse-kun, am I a terrible person for imagining her as some kind of Samus Aran-ish cyborg badass when I read about her getting into the fight with the other boy?_
+
+No, you aren't.
+
+### 25575230  ###
+
+> _If a man suddenly walked up to you and just gave you a huge hug, would you be pissed. Even if he said nothing.. Just hugged?_
+
+I think I'd mostly be confused, and try to ward off any attempts at anything past hugging, but, um, not really. My roomate in my first year was gay, I don't have a problem with them. Or, um, friendly heterosexual hugging, I suppose?
+
+### 25575588  ###
+
+> _If you're in the arkansas(LOL HICK) And it doesn't seem like you would be, if a man with a hawaiian shirt hugs you, anonymous has struck_
+
+I'll keep that in mind. It'd probably freak me out more if it happened there than elsewhere, otherwise.
+
+### 25575737  ###
+
+I need to get going, /b/. Off to work another shift, another night, till comes the dawn. See you around.
+
+
 <a id="chapter22"></a>
+# Part 1  #
+
+04/28/07(Sat)05:29:21 Nurse-kun !!hPl7vWPKR+W
+
+## 25681355  ##
+
+Hey, /b/. I'm bored and sick. I swear, hospitals will kill you, even if you go in healthy. No story this morning, but...uh...'sup, to those of you I'm not generally up to talk with?
+
+## 25681473  ##
+
+Oh, and before you ask, if any of you care, she's fine. I guess the preventative IV cocktail and general luck + the immune system of youth protected her, where my lack of a tube in the hand, usual shitty luck + oldness didn't. I'm fairly sure of this, since I've called at least six times over the last day or so to make sure, earning me the exasperation of my coworkers.
+
+## 25681533  ##
+
+Oh, and as a general piece of advice from a health professional: Don't try eating pasta for lunch when you're feeling a bit queasy. Just stay on the safe side of things.
+
+## 25681649  ##
+
+Shit, forgot my tripfag hat. Old habits die hard.
+
+## 25681805  ##
+
+Just going to post random pictures now, since moving too much is bad and stuff.
+
+## 25681833  ##
+
+
+### 25681771  ###
+
+> _Holy shit posting in a Nurse-kun thread?_
+
+Indeed you are. Here, have a...uh...this?
+
+## 25681967  ##
+
+
+### 25681872  ###
+
+> _Excellent, I've never been in a Nurse-kun thread before sir._  
+> _'So she's doing okay?_
+
+Posting between horrible botchings of EBA stages. Yes, she's fine, not even a case of the sniffles. Hopefully, I'll have recovered by tonight's shift-start, but if not, I'll try and trade with someone for Sunday; I try not to get too full of myself, but when I've missed a few days before, she's gotten more...troubl...ing...than usual.**
+
+## 25682172  ##
+
+
+### 25681962  ###
+
+> _Morning nurse-kun, just got in from my night shift too. Anonymous also works in a residential home._
+
+Curse you, Bowie, and your confounding oil-baron stage, too. Oh yeah? Well, another night's work done, my /b/rother, enjoy your day (what you have of it). I'd normally be there for another few hours yet, but my puking all over various things/people convinced them to send me home mid-way through last night's, and into tonight's, too.
+
+## 25682203  ##
+
+
+### 25681896  ###
+
+> _I wanna join your cause too, emo-kun_
+
+Hey, fuck you. Them's fightin' words, bitch.
+
+## 25682248  ##
+
+
+### 25682142  ###
+
+(pic of legless, clothesless, loli) _This is the reason Nursie is taking care of that kid._
+
+Her missing legs? Well, yeah, that is at least 30% of why she's in my care facility, under my supervision.
+
+## 25682303  ##
+
+
+### 25682084  ###
+
+> _This may be a old wives tale, but I found that if I take a decent dose of Zinc and Vitamin C, I'm able to overcome most minor sicknesses._  
+> _'Zinc's hard to come by in food sometimes, but supplements are cheap._
+
+Well, hard to take stuff when what goes down comes back up. But yeah, my supplements shelf space is not inconsiderable, though not ridiculous, either.**
+
+## 25682328  ##
+
+
+### 25682017  ###
+
+> _i want a Nurse-kun to love me `=(`_  
+> _'**cough** i may be male **cough**_
+
+Try your local classifieds. I'm sure there are plenty of lonely nurses out there looking to love, too.
+
+## 25682380  ##
+
+
+### 25682074  ###
+
+> _what do you mean troubling? also, how's the adoption thing going?_
+
+Well, her PTSD symptoms tend to get a bit worse, becomes more of a handful, and as shitty as it makes me, being here, a noticible rise in anxiety in general and nightmares in particular have happened the two other occasions I've had back-to-back or longer absences from work for one reason or another. And it's going. Not much has changed since wednesday.
+
+## 25682408  ##
+
+
+### 25682110  ###
+
+> _Sup Nurse-kun_  
+> _'Please keep bing a hero `:D`_
+
+Well, so long as it's not an hero...
+
+## 25682581  ##
+
+
+### 25682362  ###
+
+> _Well, hopes you get better soon and don't infect your girl, best probably to wait things out rather than risk getting her sick._  
+> _'Normally I'd be in bed now too as i've another shift tonight, but ours is only a small home with just two kids and two nightstaff. So it's not unusual to get a few hours nap in which makes the next day not so horribly shitty._
+
+Well, yes, coming into work when you've got a likely communicable illness, a common trend in the general workforce in America despite its contribution to greater inefficiency, is generally a no-no in a home filled with elderly patients with weak immune systems, as I'm sure you well understand. Besides, I get few enough days off as it is, so I won't fight it too hard...though, as previously stated, I won't take more than I need, since she...seems to prefer me there. Ah, you specialize in a small group home for kids? Nice gig, all of those were filled up when I was looking, and I hadn't worked with kids before, so I didn't pursue it too hard at the time...anyway, grab what you can, man. Nice to hear from you.**
+
+## 25682633  ##
+
+
+### 25682339  ###
+
+> _So Nurse._  
+> _'I don't know what to ask even. I mean, I have only read your threads in archives._  
+> _'How is she? How is your status, etc?_  
+> _'It's just so fucking basic questions to ask from a /b/ star. Sorry `8(`_
+
+She's about the same as she was last time, doing pretty well all things considered, I believe...I'm...well, I'm still movin' on forward, even if I might be getting worn down a bit. Guess I'll just have to take it, since I don't see other alternatives aside from letting down a lot of people I care about.
+
+## 25682687  ##
+
+
+### 25682395  ###
+
+> _sup Nurse-kun. I'm usually up for both, cause I don't sleep._  
+> _'For the record, the last time made at least one anon cry. God help you if I find out this isn't real._
+
+Well, as real as anything can be...am I a nurse that dreams I'm a...uh...cage-fighting president, or am I a cage-fighting president that dreams I am a nurse?
+
+## 25682992  ##
+
+
+### 25682790  ###
+
+> _Wow, a Nurse-kun thread. Haven't participated in one since nearly the beginning. In during awesome, etc._  
+> _Anyway, reading your threads has had somewhat of a positive impact on an aspect of my life I had pretty much given up on. To prevent tl;dr, we'll just say it's related: young girl in bad position (family, hard life, abuse, etc), and someone with feelings that aren't sexual wanting to do something about it._  
+> _'So I can sympathize with part of what you're going through; I wish you the best of luck in continuing down this rough path._
+
+Yeah? Well, good for you, /b/rother. Good things tend to be hard, too, which is unfortunate, but then, I guess if they were easy, the world wouldn't be in the state it is. I'll try and not to let down my burdens if you try and bear yours, deal?
+
+## 25683093  ##
+
+
+### 25682843  ###
+
+> _No problem, although my gig is more of a learning disabilities thing, we're a Private home not run by the NH.S. (Britfag here) We cater to more specialist needs, for example the two kids we have right now are a very low functioning autistic 13 year old (who's strong as hell) and a 15 year old with a severe behavioral disorder. Both are a huge handful and pretty much the reason we have them is because no one else can cope with them. Like i said we're a specialist home. Night shifts however are usually peaceful, thank god._
+
+I can imagine...since, well, my girl isn't far off in terms of being driven to behavioural problems, though without the autism, thankfully, hoping that doesn't sound insensitive. She'd probably be in a similar home if it weren't for her physical disabilities as well, the combination of the two forming the poison pill, as it were...well, good on you, anyway. Thumbs up.
+
+## 25683173  ##
+
+
+### 25683089  ###
+
+> _ITT we give health advice to a health professional_
+
+I did say it almost went without saying. Being in a field doesn't mean you're the wisest sage of it. inb4 blasphemy etc.
+
+> (Screencap of Shiro "people die when they're killed" Emiya, from Fate/stay night) -NurseKun
+
+that's an impressively apt picture, at speed. not too ill to have command of a massive /b/ folder, eh. Well, I may not have her memory, but I have enough to remember the general 'layer' of my main picture folder some of my more amusing pictures are located in. I'm not completely retarded, after all.
+
+## 25683190  ##
+
+>>(Nurse-kun is introduced to the #Fortune system.)
+
+Th-thanks? What the hell?
+
+## 25683259  ##
+
+
+### 25682852  ###
+
+> _Nurse-kun: his other major was in Chinese philosophy._
+
+I am a man of many layers, much like delicious cake.
+
+## 25683323  ##
+
+
+### 25682850  ###
+
+> _ 'Sup, Nurse-kun._  
+> _'Read the story on wikichan, and I found myself designing leg prosthetics in my head the other day. Nothing that's going to make me rich, though._
+
+Well, I'm sure the industry could always use another mind, y'know. Even one not at work on it full time. Who knows? It could at least make for amusing sci-fi-cybernetics designs or something, at least.
+
+## 25683433  ##
+
+
+### 25683189  ###
+
+> Sure thing, But I'll be honest. From my perspective, as hard as our kids over here are to deal with sometimes, what you're doing and what you've already done has probably been a hundred times harder than anything I've had to put up with so far. _  
+> _'So I'm wishing you the best of luck, and i hope everything works out good for you and her._
+
+Try not to discount your own achievements. An older colleague of mine gave me that advice when I was just starting out, and said that those of us in the professional care provider industry that burn out often forget about it. You're welcome in any of my threads, any time.
+
+## 25683546  ##
+
+
+### 25683316  ###
+
+> _To be honest, I thought I'd never get to see a Nurse-kun thread in the flesh. It seems it is worth being up around 11am GMT+1, after all!_
+
+One never knows when a borderline idiotic manchild will be around to amuse you with his fumbled attempts at wit, no. Lucky you!
+
+## 25683703  ##
+
+
+### 25683506  ###
+
+> _so nurse, has she fully recovered from the ERCP?_  
+> _'has she been walking around more?_
+
+It's not a procedure with much of a recovery attached to it, assuming there aren't any complications, like bleeding or a bunch of other things I'm not going to try to remember right now. Thankfully, there weren't any, so she just needed to sleep off the sedative, and continue not to eat anything for a while longer afterward. She was fine when I saw her thursday night, before I had to go home. And I don't really know, she hasn't had the occasion to do so, and her rehab nurses are still advising against it, so...maybe I'll offer her a stroll or two up and down the corridors when I get back...
+
+## 25683805  ##
+
+
+### 25683628  ###
+
+> _If I could draw. Always liked cyberpunk, just wish it had a better name._  
+> _'On that note, anyone know if the guy looking at doing a live-action Battle Angel Alita movie is any good?_
+
+I don't really follow movie news much, but I heard Cameron wanted to do it, last time I heard anything about it...he directed The Abyss, Aliens, Terminator 2...I'd say he's got fairly good potential for win.**
+
+## 25683938  ##
+
+
+### 25683769  ###
+
+> _Nurse-kun, are you wanting to stay in nursing for the rest of your life or are you wanting to move onto bigger things?_
+
+What would you define as 'bigger things', buddy?
+
+## 25684125  ##
+
+
+### 25683915  ###
+
+> _Sup Nurse-kun. Tonight I went for a picnic by myself to see the flooded river before it finally goes down. There's nothing quite like eating tasty tasty food like egg salad sandwiches and Jamaican lemonade, while sitting on the space where the sidewalk disappears into the river._  
+> _'Then I got home to the dorm and there was a fire alarm so I'm still awake >_< _  
+> _'Nothing actually to add to this thread other than "You rock!" ^_^ I'm a cyberpunk writer, so stories about people with missing pieces fascinate me._ Maybe you should team up with \>\> 25683628
+
+and write the next great cyberpunk novel together, he can design the shiny bits, you can provide the washed out dystopian urban blight of the setting. Might I suggest a hard-bitten but still human due to the influence of a stranger that extended a hand young blonde half-Japanese woman with a few cybernetic limbs and an eye-laser as the protagonist? The Japanese are still cool in cyberpunk, despite the fall of their economic zeitgeist, right?
+
+## 25684391  ##
+
+
+### 25684094  ###
+
+I don't know, like a doctor, paramedic, specialist or something. What's the pay like for nursing anyway? I've been thinking of getting into the health field, pharmacy specifically. After reading Damaged Goods though it kinda made me want to get into nursing. What do you think about pharmacy?_ Well, nursing is certainly a calling, rather than something you get into to make a ton of money and retire to a big house somewhere warm. Since the changeover from apprenticeship to degrees, nursing isn't as robust a profession as it used to be, particularly since once you've been in school for four years or so, you tend to find yourself asking 'Do I REALLY want to do this?' when you start doing the real thing. And it isn't a glamorous job, even if they let you wear the white uniform and hat. Pharmacy is much more stable and less traumatic, a good solid career choice, if the work you'd be doing is the sort of thing you don't mind, or enjoy, doing. I have an aunt by marriage that's a pharmacist, she seems to enjoy it. I'd certainly do some research before I went into nursing in earnest, though, particularly if you're just inspired by my drivel...it's not much different than joining up to carry an M-16 because that movie was SO COOL, since the reality is a bit harsher. Still, we can certainly always use more brothers and sisters for the cause, so think it over some more. And no, I haven't particularly thought about going into another career, though I don't think I'll be working in a home for the rest of it...this is, was, intended to be a sort of...purgatory, as I thought about some issues of my own.
+
+## 25684514  ##
+
+
+### 25684307  ###
+
+> _I was about to go to bed when I saw this thread. I guess I will stay up a bit longer and say get well soon!_
+
+Well, no need to trouble yourself on my account. But thanks for the well-wishes.
+
+## Image Flood  ##
+
+Nurse-kun engages in an Image posting war with anonymous for a few a bit.
+
+## 25685735  ##
+
+
+### 25685416  ###
+
+> _What are Nurse-kun's favorite games? I'm wondering this because of the recent upsurge in DS related posts due to the recent US release of Pokemon Diamond/Pearl._
+
+I don't get to play as often as I'd like...but I enjoy EBA (duh), Ouendan's fun, despite my not understanding any of it or being a jpop fan, I played Castlevania: DOS a fair bit, having been a Metroid fan myself, though the 3d versions never caught on with me, haven't been able to find a copy of Phoenix Wright, so playing part 2 seemed wrong somehow, God Hand is impetuous, I've spent way too much time on the Disgaeas, I enjoy both the Silent Hill and Resident Evil series, and am kind of bummed that Capcom shut down the Outbreak servers, since I didn't really get to play online much, my ISP hookups having been not very workable until just recently, when I got busy...um...can't think of much else off the top of my head, though I'm sure there are others...like...
+
+## 25686377  ##
+
+
+### 25686252  ###
+
+> _Nurse-kun, I just wanna say your someone I really respect. Reading your threads makes me smile, and makes me look at my life, which I'm currently failing with... But that's okay, as long as someone is happy with what your doing, then your doing your job right? lol_
+
+Well, it's never too late to change. And life is one of those things where so long as you win in the end, you win, and it makes just about all the fails moot. Not mootxican moot, but, ah, you know what I mean. Cheer up, anonymous kid.
+
+## 25686935  ##
+
+
+### 25686744  ###
+
+> _We <3 you Nurse-kun._
+
+Aw, shucks.
+
+## 25687088  ##
+
+
+### 25686917  ###
+
+> _Finally a positive for working all night and coming home in the morning..._  
+> _'A NURSE-KUN THREAD YAYAYAYAYAY_  
+> _' 'Sup Nurse-kun?_
+
+Haven't puked in a couple hours, finally beat a stage on EBA with an S rank for the first time all day 'NURSE! Gold medal hero or zero!' (which we played in the waiting room at the hospital on wednesday, as well).  You?
+
+## 25687118  ##
+
+
+### 25686927  ###
+
+> _this is the first live nurse-kun thread ive seen, so i thought id just stop by and thank you for what youve done. youre a great inspiration and reading your posts on the wiki always makes me feel better when im down._
+
+Well, I'm happy to help. Thanks for all your support! (Now I need to play the movie stage...)
+
+## 25687213  ##
+
+
+### 25687153  ###
+
+> _Played EBA a decent portion of my night as well but I fucking fail at it._  
+> _'IVE NEVER GOTTEN AN S T___T_
+
+PLAY MORE SERIOUS.*
+
+## 25687547  ##
+
+
+### 25687355  ###
+
+> _Hey Nursekun, I was wondering. How did you get into your line of work?_
+
+Well, I come from a very healthy family. None of us have had any serious illnesses, until my dad just recently, that is, and we've all been pretty lucky...no major accidents, lives cut short by illness...so I was always kind of curious about something I didn't know much about, much like people raised in families that are poor and hard-laboring sometimes seek to escape to academia or science, and such, maybe? I mean, it wasn't the driving factor, but I guess it played a role in things. I'm no saint, as usual disclaimer applies, but I'm no sociopath either, so I've always, you know, cared somewhat about other people, so I'd considered a role in medicine for a while.
+
+Now, the particular aspect, that wasn't something I was sure about. Medicine is a very teamwork based field, perhaps the most so of any I can think of, except maybe the army. You can't go off on your own and expect to do well...nurses need to work with doctors need to work with lab workers need to work with pharmacists need to work with radiologists need to work with clerical workers need to work with paramedics...or the patient dies due to a crossed wire or a miscommunication or ignorance of this or that.
+
+## 25687761  ##
+
+I'd considered trying out as an EMT, but I'm not much of an adrenaline jockey, and sad to say, the vast majority of serious calls EMTs respond to wind up being lost, simply because it's too late by that point, even if ER doesn't make it seem that way. That seemed a bit too much of a downer for me (though I thought about it a bit more complexly than that), so I looked elsewhere; I wasn't sure I wanted to be a doctor, for a number of reasons, which I admit included not really wanting to add another four years of schooling before I got out and started doing things. Besides, I figured that if I ever changed my mind, I could always go back to school later, when I'd mellowed a bit more with age. So, nursing. Male nurses are a punchline, and I knew it going in...it's one of the main reasons, I think, that so few guys go into the field, really, and something that needs to change, though good luck doing it with a 'The More You Know' or something. Still, when I looked at what being a nurse really meant, what they really did and were needed to do, and I don't mean fetch coffee for doctors, despite what some of them may think, it seemed like something I'd be good at. So I went for it. It's a good career for branching off into another one later, anyway; firemen, EMTs, doctors...and nurses are needed anywhere you go, much like cooks, even if we don't seem to get paid to reflect that need. So here I am. I am nurse, hear me shout 'CODE BLUE' and announce vitals.
+
+## 25687954  ##
+
+
+### 25687775  ###
+
+> _Wow... My world feels more dangerous._  
+> _'Nurse-kun, ever play any RPGs, like D&D or any of the WhiteWolf games?_
+
+Sorry, was a bit heavy-handed there, perhaps...I mean, they won't ALWAYS die, but things will go badly to varying degrees if that chain of trust and teamwork breaks down. Whether that means a rash, or, well, worse. It's not completely dire. Guess I was still a bit subconciously ticked at the 'bigger things' comment from earlier, though I guess I should be used to it now, since most nurses hear it so often...the 'Wow, so you settled for doing this, huh?' implication, if it isn't said outright. I like what I do, at least some of the time, though it is, as I've said before, often a thankless job, it is a necessary one, absolutely as much as doctors, despite their claims to the contrary. And yeah, I've played a few, back in high school and college, and a couple times since with some friends, but not regularly, particularly of late. Busy these days, y'know?**
+
+## 25688020  ##
+
+
+### 25687961  ###
+
+> _Nurse-kun threads every night now? Maybe I should just wait for the novel or the movie..._
+
+Nah, this is a special broadcast due to unusual circumstances...there won't be a flood of Nurse-kun to inundate the market and sicken the viewing audience just yet...
+
+## 25688209  ##
+
+
+### 25687915  ###
+
+** ****_Nurse-kun what do you [fap](/fap) to?_**** ** Y'know, stuff. I find [Yomi](/Yomi) erotic, as the picture above you may indicate, if it helps. I could make a comment about not fapping to my girl, but that'd just be tasteless, really (if true).
+
+Actually, I don't have that much actual porn on my computer, photographic or drawn...yay for imageboards?
+
+## 25688254  ##
+
+
+### 25688191  ###
+
+> _Yeah, them diseases will get you in them hospitals._  
+> _'Just don't wear surgical masks._  
+> _'Lolis can smell Michael Jackson._  
+> _'Buuuuuut...then again, they might be safe since he's the Shota type._
+
+Har har. But wearing surgical masks is part of my job...sometimes...
+
+## 25688299  ##
+
+
+### 25688164  ###
+
+> _Good to hear, we wouldn't want the "sage in email field is cruise control for b-tardedness" crowd to tire themselves out._  
+> _'I just happened to catch up today with the stuff in the wiki, and your posts are the best thing on the internet. Maybe that's just because I'm a dad._
+
+Well, I don't know if I think of myself as approaching 'dadhood' just yet...it's kind of daunting, actually, part of what left me hesitating, even if I'd be old to be starting as one even fifty, hell, thirty, years ago. But I'm starting to consider...
+
+## 25688330  ##
+
+([Fuuka](/Fuuka) is also erotic)
+
+## 25688349  ##
+
+
+### 25688014  ###
+
+> _oh well, i'm off 2 lurk moar_  
+> _'also, cocks_
+
+Cocks indeed, my good sir! Pip pip and cheerio!
+
+## 25688525  ##
+
+
+### 25688386  ###
+
+\>\> 25688254
+
+> _When Ebola is in town!_  
+> _'But seriously, I've been following this saga for awhile now. You go above and beyond the call of duty, good sir._  
+> _'Salud!_  
+> _'And, y'know, don't get her sick. I mean, IV cocktails and immune systems are good, but these things find ways._  
+> _'Oh yes._  
+> _'Find._
+
+Well, that is the crux of my worries and my rewards, yes! Sometimes, however, one must go above and beyond in order to truly fulfill ones duty...required duty aside. And yes, that's the last thing I'd like, I won't be going back in until it's passed (literally and figuratively), hopefully by tomorrow's shift... Oh yes. Erotic.
+
+## 25688617  ##
+
+You know, I'm starting to suspect the empty stomach and nausea are making me a bit hyper. What do you guys think?
+
+## 25688648  ##
+
+
+### 25688619  ###
+
+> _I'd respond properly, but...no. Yomi's the best thing to end my night._  
+> _'At 5:17 AM._  
+> _'Fucking insomnia._  
+> _'Oh yes._  
+> _'Fucking._
+
+Ha ha! Fucking.
+
+## 25688766  ##
+
+Continuing my random thoughts: I'm kind of sad that I missed that captain thread the other day. I saw it once when I was checking the post count in /b/'s main page, but was still typing out one of the two main installments, so I kind of went back to that without thinking, but missed it altogether. Saw a few pics reposted today in a thread in /i/, but, hm. I don't get as much time in /b/ as I used to, with all this stuff happening, and while /b/ isn't more important than 'reality'...ah, well. I really like the captain's work, by the way. I'll say it here, though I've said it to him in /i/, too. Never fails to make me laugh, including his interpretations of me and my situation.
+
+## 25688785  ##
+
+Ha ha! Horrible me.
+
+## 25688831  ##
+
+\>\>25688700 (responding to bondage pic of [tomo](/tomo) from Azumanga Daioh)
+
+I dunno, man, she seems like the type to be way too wired and twitchy in bed...and I'd never be sure if she'd somehow be seized by the urge to donkey punch ME when I least expect it.
+
+## 25688937  ##
+
+
+### 25688820  ###
+
+\>\> 25688766
+> _you lost me_
+
+Don't mind me, that was just rambling. Lack of sleep, general crappy feelingness from multiple sustained puking, dehydration (despite putting in my own IV with a saline drip, I've got skills, oh yes, but only picked up the two bags on the way home), and hunger combine to make nurse-kun something something...
+
+## 25689450  ##
+
+
+### 25689125  ###
+
+> _LOL whut? Did something happen to you?_
+
+Caught a stomach bug, presumably in the hospital while I was with her for her ERCP (one of the patients in the waiting room at the GI unit looked rather green around the gills, though I wheeled her and myself as far away from him as I could when he came in and dropped into a chair near us). Manifested itself roughly 44 hours later, halfway through my shift the next night. Thankfully, she didn't catch it either from him or, later, from me, likely due to the extra antibiotics and infection fighters she was given as a safety measure for the procedure. Luck I'm still grateful for. Shitsux, man.
+
+## 25689526  ##
+
+> _Hey, can anyone tell me how to save a thread like they do in the rapidshares on the wiki? I don't think anyone from it is archiving this, and since they even seem to care about stupid little threads like the one on christmas, I guess some people might want to see this one too, rampant stupidity and waste of bandwidth that it is..._
+
+(see [4chanarchive#Request interface](/4chanarchive#Request_interface) for details.)
+
+## 25689723  ##
+
+
+### 25689618  ###
+
+> _Oh, um. More EBA ecchi/pronz, please, Nurse-kun._  
+> _'(and anyone else who has them)_
+
+Not much out there that I'm aware of, unless you're interested in the agents and male cheerleaders from Ouendan having sex with each other...seems to be a fair amount of that. Oh, Japan.
+
+## 25689915  ##
+
+
+### 25689832  ###
+
+> _First time I've caught a nurse-kun thread. Awesome. You rock man._ Well, y'know, I try. Though only on the DS, I'm afraid. Though who knows, maybe I can get her to teach me to play the guitar one day...
+
+## 25690005  ##
+
+\>\> 25689526
+
+Anyone? At all? Searching firefox extensions, my addled brain isn't finding much of use...and my buddy that rapidshared the last one (and wrote those action-packed imposter posts, being the far more talented than I writer that he is) is currently asleep...
+
+## 25690288  ##
+
+
+### 25690227  ###
+
+\>\> 25690005
+
+> _Maybe I need to lurk more, but save page as perhaps?_ mm, trying dthemall, I'm really not a terribly sophisticated web user, all things considered...nurse, not a computer scientist, etc, etc. That, and the low IQ, y'know.
+
+## 25690533  ##
+
+
+### 25690291  ###
+
+> _Must have missed the last thread, so if you don't mind me asking, what procedure is she going through and for what._  
+> _'Heh, might as well break with anon's usual blackness and laude you for the big man you are. Makes me proud sometimes while surfing the shithole of the internet._
+
+<http://digestive.niddk.nih.gov/ddiseases/pubs/ercp/index.htm> She got **tentacle throat-raeped tenderly**, but I held her hand through it, and she was a brave little loli for it. Thankfully, the sedation for this 'scopy is the most intense of them, so she was asleep for the whole thing, though it was kind of weird and disconcerting seeing that multiple-foot-long black tube disappearing past her lips (and the teeth-guard behind them...)... And, well, thanks. Like I generally say, I'm not that special...just doing what seems like the right thing, which I still believe most of /b/ is capable of as well, should push come to shove, even if we might not want to admit it to ourselves. She's a strong, beautiful, courageous girl...if I couldn't match even a tenth of those qualities in her myself, what sort of a man could I consider myself?
+
+## 25690855  ##
+
+\>\> 25690288
+
+Woo, it worked! I learn something new! Level up! Now I am HEAD NURSE! *spins slowly and gracefully as scrubs fade into sparkles and nude-transformations into classical Cap White Old-School style white nurse's uniform in dress form, with white cap, thigh-high white stockings, and heels, included*
+
+(Shit, now we're out of our jobs... -[Sarafan](User:Sarafan))
+
+## 25691040  ##
+
+
+### 25690331  ###
+
+> _Are you a Silent Hill fan, Nurse-kun?_
+
+Yes indeedy. 1 is my favorite, with 3, then 2, then 4 in the distant distant last place, didn't even get past the second time out of the apartment, I thought it sucked the shit so...but yeah, I love the other three, wish I could find a copy of 1, haven't been able to in forever, and I haven't done much online shopping, but I suppose I could, but...mm. Hearing that sobbing in the washroom at the elementary school in the first one almost made me tear up when I first heard it, fag to say. Great series, hope 5 returns to that greatness, as it may seem to be, even if it's modelling more on 2's style...
+
+## 25691213  ##
+
+To complete a thought I had just as I was hitting submit: My girl really reminds me of Heather...or the other way around, now. She's been thrust into this nightmare of a world, even if it may seem normal to the rest of us, everything she knew taken from her, if not by evil cultists then by nhilistic chance, leaving her angry, ready to lash out, and unwilling to trust anyone anymore. They're even both 'dirty' blondes (hair color, not talking about the general level of 'grime' look they gave Heather, though I'm sure she's quite clean in the game), though it's natural on my girl, and from a bottle on Heather... ...I like to think she'll learn a Sexy Beam one day, though I don't like to think about being the target...and learn to use an iron pipe, too.
+
+## 25691320  ##
+
+
+### 25691165  ###
+
+> _1 is my favorite too._  
+> _'And yeah, 4 sucks, but I did like the last area a lot._
+
+I suppose I should go back and give it a chance, as I've played through worse, but it just pissed me off so much at the time that I returned it to the rental place within hours of renting it, despite having it for days...fucking ghosts? Silent Hill isn't about ghosts, it's about tangible nightmares, things that you can beat to death, even if they weren't actually ever born from a mother's womb...eh, bleh. We'll see. The main character's absolute lack of a personality didn't help much, either.
+
+## 25691437  ##
+
+
+### 25691257  ###
+
+> _As for finding SH1 for a decent price, good luck. It's been going for a lot lately._  
+> _'A friend of mine got it for my birthday last year, so I guess I'm really lucky._
+
+If any game needs a RE 1 on GC remake, it's SH. I can't be the only one to think so. And I just hope I could be half the 'dad' Harry was, though I hope she doesn't turn out to be a conduit for the birth of a new god, too, considering she's suffered at least as badly as Alyssa did...and young girls are the most common source of poltergeist activity, you know...
+
+## 25691484  ##
+
+\>\> 25691257
+
+(In b4 not being as sexy as Lisa)
+
+## 25691527  ##
+
+\>\> 25691484
+
+(Also in b4 being sexier than Lisa, you sick freaks)
+
+## 25691584  ##
+
+
+### 25691379  ###
+
+\>\> 25691213
+
+> _Haha, that's it, I'm definitely drawing amputee-tan using sexy beam._  
+> _'It has to be done._
+
+...well. I'm not quite sure what to think, but...I have to admit that it's got a corner of my brain, and it's tugging at it.
+
+## 25692059  ##
+
+
+### 25691765  ###
+
+\>\> 25691320
+
+> _The last area makes it worth it._  
+> _'It's the only part of that game that I liked, actually._  
+> _'Christ, having to go through each area twice was awful._[The Awakening of Nurse-kun, Chapter 22#25691437 .3E.3E25691437](/The_Awakening_of_Nurse-kun,_Chapter_22#25691437_.3E.3E25691437)_I dunno, I'm kind of torn on that._  
+> _'I'd love to see a remake, but at the same time, I love it the way it is._  
+> _'And really, don't worry. You're a great guy, from what I can tell._
+
+I wouldn't want them to change any of the plot or particular scare situations, as I think they were perfectly done... (the cat in the locker? Christ). Just a graphical overhaul, hire back the original voice actors, even, as I think they did a pretty darn good job considering the general state of voice acting at that time, (Dahlia's did an amazing job of putting the crazy in crazypants), maybe a slight control polish or two from 3...but then, Harry was unique, for his time, in that he didn't really know how to fight, so they shouldn't make him too easy to kill things with, or no easier than the first one, anyway. But smoother graphics, better shadow/lighting effects for the flashlight, better fog effects...oh, yes, please. Ah, to dream, as it's pretty unlikely to ever happen, as I've been dreaming about it for years now already...oh well... Geez, this picture looks like my girl, or an older version of her...hadn't seen this since before december, it being in my old pictures file from my previous computer...
+
+## 25692179  ##
+
+
+### 25691960  ###
+
+> _And I can't imagine she'll have even more suffering thrown at her after all of this..._  
+> _'Even if that happens, if anything, she'll be a wise girl._  
+> _'We learn from pain, after all._
+
+Yeah, but sometimes we learn too much, like a Lovecraft 'protagonist'... ...and man, did SH2 ever have a messed up female cast, but in a good way...(she's a lot cuter than Laura, even in her generally withdrawn moods).
+
+## 25692691  ##
+
+Uh, are we getting auto-saged or something? Last post didn't go through, but I suppose it could just be me or MySQL...it was just saying the movie seemed dumb and I hadn't seen it yet, so no great loss. Ah, well.
+
+## 25692889  ##
+
+
+### 25692739  ###
+
+> _By the way, I go on /i/ as C221._  
+> _'I'll definitely be doing that picture._  
+> _'Maybe tomorrow, if I have the time..._
+
+Yeah? Well, that would be awesome, I really do value the fanart people make, not just for the pictures, which are great, but for the sentiment behind them, the investing of time, effort, and the feelings that lead them to conceptualize the art in the first place...and they're all on my HD, even that Twisted Metal Ampu-tan one from /i/ yesterday... I admire you guys, since I don't have any creative talents of my own, particularly when it comes to drawing, something I haven't done since I was eight or so (and sucked even then).
+
+## 25693199  ##
+
+
+### 25692821  ###
+
+> _I liked the movie, I think the only thing that bugged the shit out of me was the whole cult >.>_
+
+### 25692903  ###
+
+[The Awakening of Nurse-kun, Chapter 22#25692821 .3E.3E25692821](/The_Awakening_of_Nurse-kun,_Chapter_22#25692821_.3E.3E25692821)_That's what bothered me too-- I think they focused too much on that._
+> _'It's also a lot different from the cult that we know, but I guess it could be a different sect of The Order?_  
+> _'That was what a fair amount of my missing post was centered on as sounding particularly dumb...I mean, a big point in the atmosphere and plot of the game was that everybody in town had disappeared, tourist and citizen alike, except for a strange, almost suspicious few, and a trio of out of towners...why had people gone, and where to? Were they these monsters, transformed from their human shapes by a girl driven to rage by pain and misery, the nurses and doctors with the parasites being the most obvious examples, but the pterodactyls and ape-things as well, perhaps...and the children...things? Were they ALL in the otherworld, the corpses decorating that place? Had they merely been swallowed up by the fog?_
+
+Instead, we got some sort of x-treme wiccans and witch burnings and...man what? Feh. Not much of a selling point to me, Dahlia and sort of Kaufmann were cult enough for me on their own...more than enough.
+
+## 25693405  ##
+
+(in response to shitty .gif video) Thanks for contributing that, it really fits in with this SH discussion, all dark and shadowy as that initial frame is, could easily be a shambling monster, not merely the shambling ass you yourself are, figuratively, at least.
+
+## 25693540  ##
+
+
+### 25693276  ###
+
+\>\> 25692889
+
+> _Heh, that's good._  
+> _'Well, finding out that you're a Silent Hill fan pretty much made my day._  
+> _'And personally, I find that I do my best when I draw for other people._  
+> _'Just for the record, I obviously didn't do any of the fanart I've posted. I've only drawn 2 things for Silent Hill-- one that I never finished, and the other I never got to scan in because my teacher is holding onto it._  
+> _'I need to get that watercolor of Heather back, goddamnit._
+
+Ah, there's the picture I hadn't posted yet! Ah, well. It's a great one, was my wallpaper for a while...I <3 1 the most as a game, but Heather is my favorite character (just edging out poor devoted but continually befuddled Harry). Best female character I've seen in a game yet, in my opinion... (Samus doesn't count since she's sort of a jumping and shooting cipher for the vast majority of all the games I've played, awesome as she is).
+
+## 25693757  ##
+
+\>\> 25692889
+
+We often do our best when doing it for someone else...perhaps it's human nature, something to encourage us to work together as a society, since no man is an island. I mean, I'm a terrible writer, but people seem to like these, as I'm writing them for all of you...and for her, in a way, in my conflicted back and forth between her privacy and dignity and wanting other people to know about her, to care about her, the way I do, which I feel she deserves, to have more than one lone buffoon know about this great little girl, aside from the ones that knew her before and have since abandoned her...way...
+
+## 25693829  ##
+
+\>\> 25693646
+
+\>\> 25691484
+
+
+
+Yes, yes he is.
+
+## 25693929  ##
+
+
+### 25693646  ###
+
+\>\> 25693540
+
+> _Heather is awesome._  
+> _'Definitely has a lot of character, especially in comparison to James and Henry._  
+> _'Harry is still my favorite, though._  
+> _'He's a cool cat._
+
+And to double-respond...Heather really does sort of resemble an older version of my girl, though she has more Japanese-y characteristics as well, of course...the hair color is nearly spot on, the green eyes, that look of determine in her eyes when she needs it...and the willingness to get up close and personal when someone/thing needs his/her/its butt kicked. Of course, I'm hoping she doesn't graduate to pipes and knives any time soon...
+
+## 25693972  ##
+
+
+### 25693798  ###
+
+> _HOLY SHIT NURSE-KUN????????/_ WHAT? WHERE?!
+
+## 25694288  ##
+
+
+### 25693877  ###
+
+> _nurse kun how would you feel about someone taking the basic details of you story and using them as the basis for a novel. obviously you are hard to contact to talk to about this_
+
+Well, that'd depend. I've kind of discussed this before, but it got a bit bogged down that time, though I'm not terribly clear-headed this time, either. As a commercial novel, sold to a publisher for print and release for sale? I'd rather they didn't. Firstly, it'd be too wide and public a method of dissemination, which for both our lives, isn't something we need right now, but rather the opposite of what we need. Second, while I'm happy to be doing this for free for those of you that care about her, and that is why I'm doing it (my being bored and sick tonight and doing a dumb content-free thread to amuse myself notwithstanding), I know I'm not a professional writer...but...maybe I'd like to try it, some day, and to write about this myself, after it's done and things have been explained and accepted and settled where they need to be. Raising her, should I be so lucky, will be an expensive endeavor, and while the remainder of her life insurance policy, my savings, the stipend from the government for caring for a disabled adopted child, and the help of my family should do for a while, it won't last forever, and I'll need a source of income somewhere. My hopes aren't pinned on all of this, I can find work nursing again, once she's recovered enough to be able to attend school again (fingers crossed), but it's certainly an option I'd like to retain, you know? Thirdly, money aside, if it is destined to be read by people outside of here in printed form...I think I'd like to be the one to write it, somehow, since it is my, and her, story, you know? Maybe that sounds petty somehow, but...
+
+## 25694602  ##
+
+...well, I'm not a paragon of detachment and zen. Now...if you were talking about some sort of 'visual novel', or whatever those dating-sim-style books with pictures as games are called, I thought someone was already doing one sort of with this...which I'm still ambivilant about, but if they want to do it as a fan project for a small internet release, well, I'll take it in the spirit it's presumably intended, and give it my conditional blessing. But if one were talking about a serious project intended for sale, particularly one that has me loving her tenderly as either a good or bad end (or beginning or middle for that matter), that'd be another story again... Basically, I guess I'm saying: If you want to write a fanfic about this and post it somewhere on the net? Okay...I can handle that, so long as you're somewhat subtle in the details, but fuck, go wild if you feel like it, just make sure you make it clear it's just that, a fanfic of this 'story'. If you want to make a little 'visual novel game' out of it, hey, that's cool, I'd like to play it myself, as I've 'played through' the one already in beta (spelling errors abound, guys, you should really get an editor, and some of the prose sounds weird in that format, particularly some bits that were responses to others, which were ommitted...but then, it is a beta.) Go for it. Again, make clear it's a 'fanfic' of this, and you can do whatever you want with it, hell, make it XXX-rated and give 'admirers' a stroke with all that hot stumpz action, for all I care.
+
+## 25694840  ##
+
+...but if you intend it for commercial release, either novel or game, I would not be happy about that, and do not give you permission to do so. I suppose you could ignore that and try to do so anyway, and I wouldn't have a lot of ability to stop you very easily, particularly as you'd be preying upon my intention of keeping her safe from scrutiny, and despite the beliefs of some, from ruining my best intentions of trying to take care of her, but I might try to do so. And from what you're saying here, you'd basically be 'stealing' it, just as unscrupulous hacks 'steal' the tragedies or tear-stained triumphs of other people in real life for their hack 'based on a true story' shite, which I've always thought was exploitative and base. So my answer would be no. Fanfic for no profit or paper short of people printing it out themselves? Okay, I can accept that. Trying to sell this for yourself, our 'cut' aside, the feasibility of that a joke in and of itself, due to our need for privacy, no. I would not be happy, and I would not give you permission. I'm sure more knowledgable people could go on about writing under an alias and whether that invalidates intellectual ownership, but I'm not going to do so, because I now have a raging headache. Thanks a lot. I'm done with this for now.
+
+## 25695048  ##
+
+
+### 25694810  ###
+
+
+#### 25694573  ####
+
+\>\> 25694288
+
+> _yeah, i appreciate that, it wouldnt really be about you and amputee chan as such, it would just be a novel where the main character is a male nurse, and the patient he cares for has the same story as amputee chan, and i'd use that plot framework to work on other themes, for example, the main character would muse on how hard it is to be a good person today, there'd be some ambiguity as to whether he really cared, and he'd question himself abbout it, theres all kinds of other themes i'd work into it, i'd just use the very basic aspects of the story as a basis for a plot. obviously if it did well (who knows, it might) you could contact me and i'd make sure you and amputee-chan got a fair cut._  
+> _'basically what im trying to say is that it wouldnt just be c/p the wikichan entries into notepad and publish, i'd use the very basic premise of male nurse + amputee chan, and really no other details would be the same, aside from maybe one or two events, such as her lashing out at the war vet. it wouldnt just be like a re-telling of what you've already written is what i mean_
+
+If you want to be 'inspired' by it, then just leave me out of it entirely, and go ahead and Eragon my Star Wars. Make her nothing like my girl but perhaps a basic set of symptoms, take none of my personal acts and experiences between us, leave out the details of her 'incidents' and make up your own, and whatever. Part of being a writer, so I'm told, is the ability to write original content, rather than thinly veiled copies of other peoples ideas. I suggest you do so. Sorry to sound harsh, but...yeah, there it is.
+
+## 25695313  ##
+
+
+### 25694037  ###
+
+\>\> 25693929
+
+> _Does she have freckles too? :3_
+
+And to get back to things that might actually be fun after that brief rant which I'm sure will have no effect...no, not that I've noticed so far. But then, it is still early spring, and I've only known her since late fall and early winter, and with freckles often 'manifesting' with exposure to sunlight...well, I don't really know! Maybe she will! She is rather fair-skinned, not creamy white or anything, but somewhere between a fair-skinned scandenavian (ok, ok, I'll pin it down...her father's family was from Norway. So...Norwegian, look up pictures of them yourselves, though they're often pretty tanned), and a fair-skinned Japanese person...so yeah, pale, but nowhere near albino, with more 'pink' than Japanese tend to have. Actually...and here's something people interested in her might be interested in...and you genetics freaks, too...
+
+## 25695428  ##
+
+
+### 25695069  ###
+
+\>\> 25694840
+
+> _sure, thats okay, i might write it up anyway, and maybe show it to you at some point just so you can see what you think, but if you dont want it published, even though it would be so loosely based on your story that i probably could publish it, i wont do it._
+
+Like I said, if you change all the details but male nurse + little girl with amputations + lost parents + bonding, and made up the rest on your own...well, I can hardly claim rights to that, because I'm not crazy like some 'authors' are. If you want to write about us in particular, with our details, limit yourself to fanfic. That's all I'm saying. But if you do go with a publish-bound story, don't say it's 'based on a true story' or hint at us at all, sil vous plais...
+
+## 25695481  ##
+
+
+### 25695260  ###
+
+\>\> 25695048
+
+> _yeah thats basically what im talking about, male nurse+orphaned amputee patient is the ONLY thing i would take from your story, i wouldnt be writing any of the events that you describe, myself, because honestly, i'd never be able to respect myself if i was successful through basically paraphrasing what you've already written. i kind of feel unoriginal enough for taking the concept of male nurse+ amputee chan anyway, which is why i want it to deviate from your story massively, it really would be completely different (amputee chan would probably be moved to a different hospital and nurse-kun wouldnt be able to see her, for example, to demonstrate the evils of bureacracy). it's not like i'd be using the names "nurse-kun" and "amputee-chan" either, but thanks for taking the time to talk to me about this._
+
+Well, there you go then...as said, don't claim a 'based on the true story' or hint at it, and it'd be fine by me, you'd have my blessing that it'd turn out well, even.
+
+## 25696021  ##
+
+\>\> 25695313
+
+...it seems she wasn't the first half-breed in her family. Going way back when (well, not WAY WAY back, but a fair ways), back to her great-grandmother on her mother's side of the family...said great grandmother, back in the early to mid 30s...fell in love with an American. She and her family had already been living in America for a while, so it wasn't as though she'd been picked up in a bar in Tokyo, but it was still quite unexpected for them, this blonde-haired, blue-eyed gaijin coming to ask their permission to see their daughter. Which they refused, apparently, but they still saw each other in secret...pretty wild for a Japanese girl at that time and age, really. One thing led to another, as they continued seeing each other being her parents backs (and his, too, they wouldn't be too happy about it either), and...she got pregnant. With my girl's grandmother. This was in the mid-30s, back when anti-miscegeneration laws were still in place...blocking blacks and whites from marrying in particular, but ALSO just about any other sort of race-mixing...it was actually illegal for them to get married in the state they lived in. And their child was actually evidence that could be used against them to bring felony charges of adultery or fornication!
+
+## 25696322  ##
+
+Where was I...right. Now, her mother told her all of this when she'd had a bad day at school, which was rare for her being a very happy child from all accounts pre-accident...where she got taunted by one older jerk about her parentage. She didn't attack him like she did the boy in the wheelchair, just argued back that her parents were the best in the world, and etc etc, then finally started crying when he wouldn't relent. Guess even gifted kids can be total dicks. Anyway, she got home, and her mother told her the 'family secret'...to try and help her understand that it was normal, in a way, for her to be the way she was, and that it was a good thing, that it made her special, and the most beautiful girl in the world, and that it just made both herself and her father love her even more than they already did, which she then made a joke was impossible, since they already loved her a hundred percent, and she, of course, got it and started laughing, because she knew there was nothing more than 100 percent of one 'thing'...and...well, she started tearing up as she was telling it, relating many of these exact words as they were said, and how her mother laughed and hugged her tight, and when her father got home, he did the same, and added that she was his 'little kitten', a nickname he had for her because her eyes were green, like a Norwegian Forest Cat...and, well, the story ended there, and I tried to comfort her again.
+
+## 25696655  ##
+
+So this explained a few things for me...like why her aunt, who happens to be her mother's identical twin sister, and the rest of her family (husband, two children, one daughter a couple of years older than she is, one son a few months older) haven't come to see her...after Pearl Harbour and America entered the war, Japanese civilians, citizens, were sent to internment camps, considered possible, well, terrorists, because them Japs were so darn inscrutable and treacherous. This included her great-grandmother, grandmother (who was just a young child at that point), and grandfather (who was just a baby, having been born about six or seven months before the attack). Her husband, the All-American Boy, was told he wasn't required to go in as well, because his loyalty was assumed to still be where it should be, despite his 'exposure' to her. To his credit, it seems he went in anyway, voluntarily, brave man. They spent the remainder of the war in there...well, most of them did, anyway. A fair number of Japanese men in the camps offered, tried, to enlist in the armed forces, to prove their loyalty...and her great-grandmother's husband (who I suppose would be her great-grandfather, since her grandmother had her mother) did as well, having less trouble convincing them to let him do so.
+
+## 25697100  ##
+
+He asked to be posted along with the other Japanese men from their camp that enlisted, and was, in fact, serving alongside them when they were sent to Italy, then to Southern France. The rest of the unit/military group name I can't recall went on to Germany, amongst the first to liberate one of the concentration camps...but not him. He was shot and killed in France, recieving a bronze star posthumously, but his wife never told her children what he'd done to earn it...in fact, she told them very little about him at all...the only picture of him she kept was in a locket around her neck, which she was buried with. Even with his sacrifice, she and her two children stayed in the camp until it was shut down and the 'internees' were released. She went home to her family, who'd been at another camp, as she and her husband had moved to another city together after their disapproval and his parents' as well; luckily, her children could pass for Japanese...mostly. They had black hair, and just a slightly lighter than 'normal' skin tone for Japanese people...their features could pass well too, except for little quirks, here and there...well enough that white people would rarely notice...but not enough that most Japanese would.
+
+## 25697522  ##
+
+As a result, they were often treated...poorly...by the Japanese community that they lived within. They spoke perfect Japanese, just as their mother did, they knew the customs, the traditions, all the things the other children knew, as their father had been quite understanding in their learning about that part of their heritage, but it was often not quite enough...taunts came, bullying, a few beatings for her grandfather, who died when he was 10 due to 'accidental drowning' when the ice gave out beneath him on a frozen lake during the late winter, while skating with some other boys, and the vicious sort of less physical attacks girls can level at each other for her grandmother. Her own parents, our girl's great-great-grandparents, weren't outright hostile to her children, but they weren't terribly warm and friendly, either...a distinction that became very apparent when she remarried, an older Japanese man, a grocer, making an offer to her parents...who accepted on her behalf. Hardly a match made in the heart...and when she had a third child, another boy, the way her parents doted on and spoiled him, while still behaving coldly to her other children, just solidifed it all for her. And this is how her grandmother grew up. When she was eighteen, she left home for college, having studied long and hard enough to have earned a scholarship to a good school; she avoided the white students, who made up the vast majority, for the smaller Japanese population, only a dozen or so in a school of a thousand, but none of them knew her past, or her parentage...and she managed to work on her little quirks over the years to the point where she could pass with all of them.
+
+## 25697965  ##
+
+She met a young Japanese man in her third year, and they began dating, she brought him home to meet her mother and step-father formally after had graduated, keeping her mother from seeing them together when she attended the ceremony, her step-father mysteriously too busy to come, where he asked for her hand in marriage, and they happily accepted, as he was an intelligent, now well-educated young man, an engineer, destined for great things, no doubt, even in this land of white privilege. And he did, in fact, do quite well for himself, finding a decent position with a small, but growing, company, and growing with it, his merit enough for his boss, who was a good man even back then, apparently, finding it enough to promote him, rather than leaving him shut out of the old boy's club's doors. He had to work twice as hard as any of the white engineers, of course, but he did so, despite the sacrifices that meant for their home life. Even so, they had a child soon after they married, a daughter, our girl's mother's mother.......wait, I fucked this up. Shit. MATH IS HARD. Ok, the woman in the camps who married the white guy was our girl's great-great-grandmother, who had her daughter, our girl's great-grandmother, who had HER daughter, which I just mentioned, who was our girl's grandmother! Geez. Sorry, all.
+
+## 25698514  ##
+
+Aaaaaaaaaaanyway, her half-Japanese great-grandmother maintained their home while her full-Japanese great-grandfather worked, and she took care of her three-quarters-Japanese daughter, who looked as Japanese as any of their friends and neighbours in the community...and was thus presented as such by her parents, the secret of her parentage kept by her mother, even her father not knowing at that point. And that's how she was brought up. She wasn't even told herself until she was in her teens, when her father learned as well after a slip of the tongue from her own grandfather. Since she knew how half-blooded children were treated, hell, she'd even made a few jokes herself, she guarded her secret zealously, and presented herself as nothing but the most traditional, absolutely Japanese woman she could.
+
+## 25699001  ##
+
+She met and married a Japanese man when she went to college as well, and they had a very Japanese life along with their American one, both of them being from multiple-generation Japanese-American families; they had friends from a number of races, socialized at barbecues and neighbourhood events with their neighbours, attended the company picnics, bought a cabin on a lake away from the city for summers and holidays, the picture of the American dream, with him working hard, and her maintaining the home, while also writing books on learning Japanese for english speakers in her spare time. And they had children, a son, first, then a pair of daughters, identical twins. Each of them, by this point...lessee...1/8th caucasian, 7/8ths Japanese? And they looked as Japanese as any of their Japanese friends, though they were all an appealing pale, but with lighter, brown, hair, compared to their mother. And they grew up not even knowing until they were in THEIR teens, whereupon their learned the family secret, and how it was important to keep it that way, how it'd brought nothing but pain and ostracism to their grandmother, how nobody needed to know, and that they were already 'American'...as American as anyone else, without it being built on blonde-haired-blood. So life went on...the older brother went to school, and became an engineer, like his father, while the older of the twins, (well, by a few minutes), our girl's aunt, opted to go to school in Japan, attending a prestigious university there, all three of them very intelligent and hard workers, and thus not having many problems with admissions. Finally, our girl's mother opted for a school closer to home than Nippon, but still further away than her brother...she studied at a college here, where I'm living today, which is a fair, but not great, distance from home for her.
+
+## 25699430  ##
+
+And while there, about halfway through her bachelor's, she met a tall, blonde-haired, fair-skinned man with a bright smile one day, in the library, apparently, and things led from one to the other, and within six months they were living together...and within a year, our girl had arrived in the world...three months after the wedding. A wedding that was unseasonably freezing...figuratively speaking, as her parents, while in attendance, didn't say a single word the entire time, or even touch her or her husband, her father walking her down the aisle, but not holding her arm, merely walking alongside her. They left the reception as soon as the vows were completed and they were pronounced husband and wife, and while her brother, who'd attended with his own wife and their infant child, stayed a bit longer, and was apologetic for their behaviour, he 'suffered' for it afterward. Her twin sister, the person she'd been closest to their entire lives, the 'perfect sisters', having been at least one person's nickname for them, hadn't even opened the invitation, sending it back with 'Return to sender' on it. Our girl's mother, knowing she was curious about why the rest of the family 'didn't like them', and asking her if it was because of her, knew she needed to be as honest as she could be with her, her age notwithstanding. She was smart enough to understand most of it, and with her memory, she could muse over it over time, and figure it out as she grew older...her mother was probably hoping they could reconcile before that happened, that they could see their beautiful, brilliant, talented granddaughter and neice for who she was, and accept her, and her husband, for the people they were...but...well, things, happened. One big thing, anyway.
+
+## 25699838  ##
+
+And that was that...she told me all of this one night last week when I stupidly made some off-handed comment about her family being jerks, just talking what I was thinking out loud, hearing about how another attempt to reach them by her social worker hadn't made much success earlier that evening via the grapevine from our resident shrinkette; I said it, and regretted it the moment I did, as she stared down at her lap...I began to apologize, and she said it was..."Okay", and that "They just don't want me...". I tried to assure her nobody could not want her when they knew her, and we went back and forth for a bit before she just started talking, starting at the beginning, as if reciting verbatim something from a documentary or a story heard while sitting on someone's lap...which, I guess, she had. She just kept talking, with me managing to keep my mouth shut now, until she was finished, and I didn't know what to say...so I just gave her a hug, as she tried to wipe her eyes with the back of her hand, recounting how the accident had made reconcilliation impossible having stirred up pain within herself, and tried to help her get through the crying, while thinking they were even bigger jerks than ever, the quarter-japanese grandmother in particular...  And, well, there you go. I'm not a genetics expert, but I heard someone mention that blonde hair and blue or green eyes in half-japanese kids was almost impossible, so I guess this might help explain things somewhat...not that I have anything to prove there...the gaps it fills in with her family's behaviour was a lot more revealing to me, and it doesn't make me like them any less. I'm not sure that'd be possible.
+
+## 25699887  ##
+
+Anyway, here are some zombie boobies.
+(hot pic, end of first thread)
+
+# Part 2  #
+
+05/29/07(Tue)15:44:49 Nurse-kun !!hPl7vWPKR+W
+
+## 28267206  ##
+
+Where was I? Ah, yes. Anyway, she hadn't been feeling well when I arrived, and I did my best to make her comfortable and keep her company, but that was about all I COULD do there. Time passed, she fell asleep (uncomfortably and uneasily), my shift ended. I made my mind up, and hung around to wait for the administrator to show up, which took a while longer. Finding me asleep outside her office, she woke me unceremoniously (the lady has got no mercy), and asked me what I wanted. Doing my best to compose myself, I made a request for an excursion for the day, just a few hours away. I said that I'd call her social worker and clear it with her, so I'd just need her permission, and would let her think about it if necessary, and get back to her in said few hours later. She more or less just waved me off dismissively, making it clear she wanted to pay attention to her muffin and coffee at the moment.
+
+## 28267496  ##
+
+I got in touch with her social worker on the way home, and explained my request to her voice mail: I would bring her back to my place...and take care of her while she fought off the bug, like she, or any other normal kid, would do so. In a normal home setting, resting on the couch and eating homemade soup while watching daytime television...and being mildly pampered and fretted over by an adult not dressed in scrubs and smelling of hand sanitizer. She got back to me shortly after I got home, and gave her approval. There'd already been a visit to my apartment once before for the afternoon, when it was raining and there wasn't much to do in the city, so it wasn't too unusual a request...and by now, we'd built up sufficient trust, I like to think, that she knew my intentions were innocent. Which they were, of course.
+
+## 28267902  ##
+
+Buoyed by the tides of success, I left a message with the administrator explaining the approval, and said that I'd call back in a few hours. Then I went and crashed into bed, aiming to get those few hours of sleep that I could. I slept like a log, then was awakened and got up groggily, aiming to refresh myself sufficiently that I could perform my duties in this less formal setting to the proper level of satisfaction. Which meant coffee and meth, of course. Energized, I played a bit more telephone tag, found my ducks in a row, and headed out to make a quick trip elsewhere before heading for the facility. Once I finally arrived there, I headed for her room, pausing to briefly chat with the nurse on duty and explain what I had in mind, which she seemed to approve of, partially, no doubt, since it would take her off of her hands...as a sick patient, not some sort of special trouble, of course.
+
+## 28268023  ##
+
+
+### 28267678  ###
+
+\>\> 28267496
+
+> _So tell us, Nurse-kun: how much cleaning up did you have to do before Ampu-tan visited your house? Were you basically hiding every scrap of porn you could find?_
+
+Har har. It isn't as though the stuff hangs from the ceiling and overflows cupboards, you know. Yes, I tidied up a bit, of course, but it wasn't a tremendous effort. ...I'd already carefully organized my laptop before her last visit, after all, which was the most difficult part of it all.
+
+## 28268100  ##
+
+
+### 28267582  ###
+
+> _fuck you, or give good explanation for not continuing story_
+
+It's quite odd, isn't it, the way the thread suddenly died...I can't explain it, personally, since I had nothing to do with it, and had just finished my second post when it disappeared. Seems rather odd it'd disappear after an hour and a half or so, considering they've lasted for ten or more in the past...hmm.
+
+## 28268366  ##
+
+\>\> 28267902
+
+Making my way to her room and letting myself in with a light knock, I found her looking roughly as sick and miserable as she had when I last saw her awake, just sitting there, slouched a bit, not even feeling up to doing anything, reading, playing DS, folding, anything. Naturally, this just made me feel I'd made the right decision, and I smiled, took a seat, and told her that I had a trip planned for us. When, she asked? Why, now!, I answered. She looked vaguely surprised and skeptical, but I assured her it was true, and began selecting some clothes for her to change into, and generally organizing for the 'trip'.
+
+## 28268469  ##
+
+
+### 28268183  ###
+
+> _Did I miss one of your posts nurse-kun? Last one I read was Chapter 21._
+
+I posted on a friday night or morning or something after that, when I couldn't sleep and was sick, but it seems they never bothered to archive it. I suppose it wasn't good enough for them or something, though I did relate a story of her family's past near the end, before I passed out...
+
+## 28268911  ##
+
+She was soon (enough) dressed and more or less ready to go, though in her state of health, she was a bit more difficult and crabby than usual...which is hardly unusual, all things considered. Still, I soldiered on, and before long, I'd packed the backpack I'd brought with some essentials, and was wheeling her out the doors to my vehicle, in the generally hazy weather of the day. She wanted to know where we were going, and complained that she didn't feel like going to wherever we were going, despite not knowing where we were going yet. I, in turn, responded by telling her that it was a secret...and she'd just have to wait and see, then gave her a lozenge to suck on. It wasn't too long before we arrived at my building, whereupon the surprise was mostly revealed, though she didn't quite grasp the meaning of it all just yet. I unloaded us, then made to wheel her into the building...and she stopped me.
+
+## 28269343  ##
+
+"No...I want to...walk." She frowned up at me from where she sat, gripping the arms of the chair with both hands, flesh and mechanical alike, and after a moment's hesitation, mostly spurred on by concern for her sense of balance in her state, I nodded in return, and offered her my hand. She took it, carefully, with her myoelectric one, then, with a combination of her left arm and body pushing to lift herself, and my hand helping her steady herself on her right, and acting as a 'platform' to pull up against with her artificial arm, she managed to stand up, slowly, arduously. Helping steady her a bit more, she stepped over to lean against the vehicle's side while I folded up her chair and set it inside the trunk...then, taking my arm again, we set off to head inside, wobbly, coughing, and damp.
+
+## 28269945  ##
+
+Once inside, we made our way past the locked doors and headed for the elevator; while I normally take the stairs, that wasn't really an option today, for obvious reasons. We passed Ms. Palmer on the way, who slowed and stared rather blatantly, not having met her before. For her trouble, after a few seconds, she turned her head and just stared back at her, the woman having been caught at it, as she was on our girl's left, and remaining, peripheral vision. At the force of that glare, the poor woman blanched, murmered an apology, and hurried on her way out of the lobby, while I tried to hide a bit of a smile of amusement. Even sick, she's nothin' to...mess with. The ride up was private and quiet, with her saying nothing as she clung to me, the slight shaking and sudden starts and stops of the car playing havoc with her still tenuous balance. Finally, the doors slid open, and out we went, walking down the hallway at her pace until we reached my room, and slipped inside together...
+
+## 28270326  ##
+
+The moment the door closed we were all over each other. I don't think either of us had expected it to happen - I certainly hadn't planned it - but there it was. She started working on the button and zipper of my jeans with her good hand, while I reached down to grip her diminutive chest (well, as much as I could). It was a little awkward kissing, with the height difference and all, but somehow we managed. All of this was before her mechanical arm, incensed by our actions, turned against us and began acting of its own accord. It wanted us dead...
+
+## 28270655  ##
+
+...whereupon she flopped down onto the nearest chair, a bit out of breath, trembling and coughing after even that short walk, looking around bleary-eyed for this 'surprise'. Taking that as my cue, I knelt down and removed her shoes from her prosthetic feet, then moved to unzip her jacket as well, setting the backpack with her things, and a few other mystery contents as well, down. She looked vaguely surprised, and managed to make a single word sound disappointed and unamused at the same time. "Here?" I couldn't help but laugh a bit at the expression on her face, bisected eyebrow raised, and simply nodded in reply as I motioned for her to move her arms so I could slide her jacket off. "Yup, here." Still looking skeptical, but a bit too tired to argue, she just sighed and let me remove it, and was thus surprised when I quickly followed that up by sweeping her up into my arms, then carrying her toward the couch as she grabbed my shirt out of surprise, eyes widening...
+
+## 28271330  ##
+
+...at surprise at the configuration and contents of the couch and coffee table. I'd set down kleenex, a glass (to be filled with juice), pillows, a blanket, the various entertainment remotes, and a box filled with the various comics from my collection she'd enjoyed on her previous visit. I set her down gently on the couch in the proper position, all of the above easily reachable with her good arm, and took a seat a bit further down. I told her that I knew it wasn't much fun staying in the home, and it's even worse when you aren't feeling well, as a few shifts worked while I wasn't had made clear in the past. And that I knew that when one got sick like this, one didn't want to be in a hospital, or a sterile environment...one wanted to be at home, comfortable, and being taken care of. And so, I wanted to provide that for her...if she'd let me. She was quiet for a moment, taking it all in, the weak rays of the sun making her hair shine like gold for a moment, then finally just leaned forward and hugged me, stifling the crying she was fighting in my shirt. To which I responded by simply patting her back and holding her gently, letting her let it out, the memory of her complaining melancholy about being sick and being taken care of by her mom, then struggling to contain herself after relating it, one night some time back sounding clear as day in my mind.
+
+## 28271556  ##
+
+the entire internet is pressing the limits on its cute intake right now. two or three kittens would put the thing over.
+
+## 28271673  ##
+
+
+### 28271486  ###
+
+\>\> 28271330
+
+> _...and then you showed her your penis._
+
+No, not **yet**.
+
+## 28272543  ##
+
+She recovered her composure after a few moments more, and I carefully brushed some sweat-stained hair out of her eyes as she leaned back and wiped them with the back of her good hand, smiling gently as I did so. I can't forget what she said next as she shifted to lay back against the pillows, body slightly turned to face the television, and using it as a focus to avert her eyes from me; "You're always so nice to me...even though I didn't do anything to deserve it...". I was surprised at this, at the expression of...even now, I'm not entirely sure, but...guilt? shame?...on her face. And I was contemplative for a moment in turn, then stood up, walking around her to tug the blanket (one I'd taken from home when I left for college, and kept with me since then) up over her. And I replied, not needing to fake any emotion, but simply speaking honestly, "You don't need to do anything but be yourself, <name ommitted here>.". I hesitated then, for a moment more, before leaning down to place a kiss on the top of her head, before heading into the kitchen.
+
+## 28273665  ##
+
+Things mellowed out pleasently after that initial spate of activity. She was still tired, so she wound up falling asleep on the couch a few minutes after, with me carefully removing her prosthetics and setting them aside as stealthily as I could. Without much to do myself, other than fill her glass with some orange juice, I wound up falling asleep as well, slumped over in the chair sharing the living room (well, what passes for one in my place). She woke up after a couple of hours, and apparently quietly began to watch tv, emphasizing quietly because she didn't wake me up in the midst of doing so. Indeed, it was another hour or so before I came to my senses again, finding her watching some history channel special on the Manhatten Project. Looking at a clock, I realized what time it was and apologized to her for falling asleep, then asked if she was hungry. Replying, after a moment, that she was (and thirsty as well, the glass empty by then), I told her I had something special for her...
+
+## 28274150  ##
+
+
+### 28274027  ###
+
+> _How the fuck is your loli not dead yet?_  
+> _'What have I been doing wrong?_
+
+Forgetting to check for aphids, I bet. You should buy some Ff-ladybugs.
+
+## 28274639  ##
+
+A few minutes of humming from the microwave later, I walked back in and set down a plate before her, on the table. I adjusted things so that the bowl in the center of said plate was within easy spooning reach, and revealed the homemade turkey soup within, the smell bringing back memories for me immediately. I'd made the detour earlier to my parents' place to pick up some of mom's leftovers from the day before, when I'd been there to help take care of dad, and she'd made a fresh pot of her signature dish; the trip, I knew, would be worth it, as I couldn't think of anything better for a sick girl than delicious broth, tender meat, and fresh, but softened, vegetables. She eyed it speculatively, as I explained what was in it, and assured her that it was perfect for whatever's ailing one, full not only of tastiness, but of the love of a mother...and grandmother...as well. I added the second title after a splitsecond's thought of announcing the first, trying not to place too much emphasis on it, but remembering my mom's face earlier in the day, when I told her who it'd be for, and the situation it'd be served in...she hadn't said anything, but the expression...well...anyway...a spoonful was carefully filled, then sampled...
+
+## 28275383  ##
+
+"...it's good." came the proclamation, as she swallowed, then took another spoonful. I smiled in relief, and headed back into the kitchen to make a small bowl for myself, the tupperware holding enough for at least four. And we simply ate in silence, then, no need for extraneous conversation at the moment, watching footage of black and white houses blow over and fly into slivers. I switched on a movie for her a little while later, and popsicles to soothe a sore throat were broken out to accompany dry ice on a DeLorean's hood. All in all, it was a pleasent afternoon that soon became evening, and a second helping of soup, as well as a second installment in a trilogy. An appropriate trilogy, considering the way time was flying.
+
+## 28276812  ##
+
+It was getting rather late, as late as any excursion had been thus far, actually. I looked to her, and found her asleep, curled up beneath the blanket. After a long moment's consideration, I finally decided to make the attempt, and called her social worker, who was already off duty by then; well, as off duty as anyone in her position could be. I explained the situation to her, and made the request...that she be allowed to sleep the night, and return to the facility the next morning. Since it was my night off, there was no conflict with my schedule, and she'd be recieving care from a professional, just as she would if she were disturbed and woken up, then driven back to her bed at the facility. I chewed my lip a bit as I waited for her response after laying out my reasoning, and not unsound reasoning it was, particularly as the mentoring programs covered camping trips and overnight stays and such, odd situations or no. Still, I knew how our own situation was more tenuous than most. Then, almost startling me, she said "All right, I'll call the home. You can bring her back tomorrow.".
+
+## 28277269  ##
+
+
+### 28275921  ###
+
+> _Question: let's say she wasn't so damned cute. Would you still love her and pay the same attention to her~ if say her whole body had been covered with burns, disfiguring her face and leaving her with no hair like the burn victims you see in medical journals._
+
+I like to think I could. I can't really say, since she wasn't, though she is more heavily scarred than the 'fan art' tends to accurately portray. I'm only human, and a sad fact of that state is that we tend to make emotional judgements and connections based on skin deep views. I don't know. I never claimed to be some sort of saint, here, it's other people saying things like that.
+
+## 28278233  ##
+
+Now, the first thing I did was go to my bedroom and change the sheets. I'm not a total slob, and do so regularly, but this was a special occasion, after all. I tidied up a bit more in the rest of the room as well, cleaning up some clothes tossed onto a chair in the corner (my 'I'm tired, these clothes aren't going into the hamper right now' chair), clearing various glasses and debris off my bedside table, etc. Once everything was good and presentable, I headed back out into the living room, where she was still asleep on the couch. Shifting the coffee table aside, I moved to lift her in my arms again, resting her chin and good arm over my shoulders as I carried her into the bedroom. There, I laid her down on the bed, reaching over to dim the lamp on my desk to roughly the level of her nightlight in her room at the home, and...
+
+## 28278438  ##
+
+
+### 28277958  ###
+
+> _Hey Nurse-kun, Did you give her that copy of Ouendan 2 yet?_
+
+Copy hasn't arrived yet. Last time I buy from PlayAsia.
+
+### 28278860  ###
+
+(fake trip troll, still amusing) \>\> 28278233
+
+> _...she went straight for my throat. She'd been thirsting for fresh blood all week, and this was the first chance she'd had in awhile. By the time I got over my shock it was too late, and she had me in her loli-vampire trance. So, basically I'd been turned into her mindless slave, willing to do her bidding even at the cost of my own life and of those I love. I guess the really major career changes always sneak up on you..._
+
+## 28279199  ##
+
+### 28278860  ###
+
+\>\> 28278233
+
+Hahaha, that's some good stuff. ...but seriously, how would that be a career change for me from my present circumstances?
+
+## 28278956  ##
+
+\>\> 28278233
+
+...tucked her into bed. Then placed my cell phone, with a note explaining how my pager number was set to autodial by pressing a certain number, which would wake me if I was asleep and she needed anything, on the table beside her. Then I stepped outside, closing the door most of the way, and went off to collapse onto the couch and fall asleep myself, pager set to audio on the table beside me.
+
+## 28279270  ##
+
+
+### 28278994  ###
+
+> _Nurse-kun, I don't have much time before I must go to work, but I have to say I admire you and have found the whole story simply fascinating._  
+> _'Please keep up the good work._  
+> _'Although I have to ask: Are you really a dude? I could seriously see this whole thing being 10x more believable (not that I don't, I do) if you were a woman._
+
+Ah, but there are no women on the internets, now are there...?
+
+## 28279478  ##
+
+
+### 28279321  ###
+
+> _Hay Nurse-kun, I just read a story today that may be relevant to your (and Ampu-tan's) interests. It was about a woman who got some kind of bad infection (it didn't say what, but I'm guessing streptococcus pyogenes) and had both legs and one arm amputated as a child, about the same age as your loli. She's now a medical student, looking to go into pediatrics. So, you can still succeed even with severe physical handicaps, if you persevere._  
+> _'Dunno if Ampu-tan has the intelligence for medical school, (no offense intended, not everyone does), but she can still do something with her life regardless.
+
+* <http://news.yahoo.com/s/ap/20070527/ap_on_re_us/amputee_med_student>
+* <http://www.cnn.com/2007/EDUCATION/05/27/amputee.student.ap/index.html>
+
+Neat. And, well, she's smarter than I am...but, hey, male nurse.
+
+## 28280197  ##
+
+\>\> 28278956
+
+We both slept pretty peacefully, save for a middle-of-the-night bathroom emergency, but even that was handled without dire results. Catching up on needed rest as we were, it was nearly nine am before either of us stirred, the 'either' in this case being me, what there is of my pride as an adult being happy to say. After a brief checking in on her and finding her fine, and in what would be full sonorous sprawl if she still had all her parts, I wandered back into the kitchen to make some coffee, and began to prepare breakfast, as well. The scent of which apparently stirred her to wakefulness, as bacon, eggs, hashbrowns, and toast sizzled away on the stove (well, ok, not the toast, but you know what I mean).
+
+## 28281146  ##
+
+Her calling my name from the bedroom was my first clue, walking over to peer inside and notice her sitting up and rubbing her eyes with her good hand the second. I quickly went off to fetch her prosthetics from the living room, bringing them back and setting them down for her to don them herself, as she prefers, then heading out to keep an eye on breakfast. Having a feeling, I waited out in the kitchen for her, whether it was another raised voice asking for help, or something else entirely. As it turns out, it was the latter, as she appeared in the bedroom doorway a few minutes later, holding onto the doorjam for support with her good hand, but maintaining an admirable balance all in all even with that nod to good sense. I met her eyes from across the room, kind of wordlessly asking if she needed help with a raised eyebrow and such, to which she responded by walking down the short hallway, hand occasionally resting against the wall for support, moving one foot at a time...well, one leg, actually, since moving just the foot isn't really possible for her...and slowly, arduously, making it all the way to the kitchen table, where she practically fell into a chair.
+
+## 28281443  ##
+
+
+### 28280549  ###
+
+> _Hey, Nurse-kun; I've got a rather odd question._  
+> _'Regarding your feelings for Ampu-tan, would you say that you're getting to the point where you "love" her (meant in the form of parental love, as a father or mother would have for their child)?_  
+> _'Maybe not, but if adoption and all that goes through (yes, hoping for a miracle here), I think it would be a somewhat fitting summation._
+
+Hm, well, um, I refuse to answer on the grounds that I'm in 4chan?
+
+## 28281959  ##
+
+Noting that she did in fact look better than she had yesterday, I asked her if she was feeling better as well, to which she answered with a nod of her head. Pleased by this (the change of health status, not the nod), I smiled and asked if she was feeling hungry, the further confirmation of which led to my placing a plate full of not entirely healthy breakfast foodstuffs before her, along with accompanying condiments. Thus we both broke our fast, and I asked her whether she was ready to go back to the home just yet, or if she'd like to stay a bit longer. After a lack of moment's thought, she replied that she was still feeling a bit sick, and should probably wait before going back, all with a straight face and near monotone. You had to be there, but I couldn't help but laugh, and simply nodded in agreement. Finishing the meal, I cleaned up, then leant her an arm to help her walk back over to the couch, letting her lay down (though closer to sitting than the day before), and watch some television while I took care of other arrangements.
+
+## 28282623  ##
+
+So we settled in for some of the more pleasent times in the recouperative process, and whiled the hours away doing very little save eating popsicles and watching various forms of media. Lunch consisted of chinese delivery, and dinner consisted of leftovers from lunch. Still, I knew that all good things must end, and told her that we needed to get ready not longer after said dinner, said preparations culiminating in her being dressed, and her things packed back into the backpack, and our walking down the hallway from my apartment to the elevator just after eight.
+
+## 28284209  ##
+
+And so the trip 'home' was uneventful, because I'm kind of tired and running out of writing energy, and not much happened anyway. I wheeled her back inside, knowing the policies and regulations as I do, back to her room, and greeting fellow nurses on the way. Once there, I told her that I hoped I'd done an okay job taking care of her, even though I knew I wasn't that good at it. She hesitated a moment, then leaned forward and hugged me, and told me that she was happy I cared enough to try. Taking that comment in what I hoped the spirit it was intended for, I smiled a bit and returned the hug, carefully, then stood up, patting her shoulder lightly. And told her I'd see her soon...since I'd be back at work in roughly three hours or so. She almost smiled a bit at that, and we waved goodbye to each other as I stepped out of her room...and back into the fading light to go home and straighten up my apartment before going 'Home again.' for another night.
+
+
 <a id="chapter23"></a>
+## Chapter 23
+This **chapter** consists of 4 threads, one frome dis.videogames, one from /v/, two from /b/. They are made of pokemans and friend codes.
+
+## /v/ 3752736 Part **23**(a) May 31st, 2007  ##
+
+Posted as Nurse-kun !!hPl7vWPKR+W
+
+### 3752736  ###
+
+Hey, /v/. I have a question, if it isn't too much trouble for you. With pokemon pearl (or diamond, I guess), when one exchanges friend codes, does one give up personal or IP information of some sort? And, more importantly, what are the capacities for communication over wireless and such? Can one send text messages, or things like that, or is it limited to non-personalized battling and trading and such?
+See, I'm considering whether it's wise to solicit said codes for wireless play for a certain someone, or...not so much.
+Picture not entirely related, but /v/ish.
+
+### 3752762  ###
+
+>  _Grow some fucking balls and stop being such a pussy_
+
+I'll get right on that.
+
+### 3752802  ###
+
+>  _I don't see how. unless there's some way to use the Friend code as a dowsing rod for IP addresses. They don't really have anything to do with one another. If you take a DS or Wii to a different IP, it still uses the same friendcode._
+>  _tl;dr: what >>3752743 said_
+
+Yes, but what about the communication issue? Just what can one do to communicate with someone you have a friend code with? I can't check the manual and such, because it's still in the box, which is still in the store, on hold for me.
+
+### 3752864  ###
+
+>  _VOIP_
+
+Can one turn that off?
+
+### 3752933  ###
+
+>  :: _I've seen people on 4chan who have it disabled. I'm not really sure how, but they might just have their volume turned off. In which case... Nintendo Wifi can sense that it's off 'cause it shows a "no megaphone" icon by their name._
+>  _yes.. but if you try to connect to someone with it on, you must turn your VOIP on_
+>  _if you invite with VOIP off, they must deactivate VOIP to do stuff with you_
+
+Hmm, I see...
+
+### 3752975  ###
+
+>  _I imagine covering the mic with a piece of thick tape might be a low-tech solution as well._
+>  _Too bad my wifi's shot to hell and back, or I'd gladly try it out for you._
+
+That's a good idea, actually. I wouldn't have thought of that. Hmm. At this rate, it looks like I may need to do some test driving before I make a decision and hand it, and potentially friend codes people may offer, over to her one way or another...
+Thanks.
+
+### 3753024  ###
+
+Okay, another question...if you had the opportunity, would you play some pokeymans with her? I can't really say how she'd 'behave' on it, but she's certainly a lot more tolerable to me than any other kid her age I've spent time with...but I suppose I'm a bit biased.
+
+### 3753065  ###
+
+>  _Are you sure 4chan is the best crowd to introduce a young girl to? We may be awesome at pokemon, but we are really lousy babysitters._
+
+Oh, believe me, I'm well aware. Thus, the basis for all this questioning: How much can I, well, scotchguard the pokeymans to keep 4channers from ruining it all with her?
+
+### 3753076  ###
+
+>  _One arm? I don't get it. Cute drawings though._
+
+Yes, she has one arm, one eye, and she's missing her legs above the knee; a result of which, along with the orphaning due to her parents dying in the crash that inflicted said injuries, she's living in a nursing home, surrounded by old people and professional caregivers, as a ward of the state.
+As such, she doesn't really get out much, or get to play or interact with people her own age, which is why I'm considering any of this at all.
+
+### 3753083  ###
+
+>  _HAY IT'S NURSE KUN_
+>  _SUP NIG_
+
+Got home from work a little while ago, chillin', getting ready to sleep for a few hours, you?
+
+### 3753096  ###
+
+>  _O vey, you'd better prepare her for 4chanians then. Must liek Mudkip and fuck yeah Seaking._
+
+Well...she was quite handy with the internets, apparently, before the accident, and losing her home/room/own PC/internet access/etc. And with young and intelligent parents, I'm fairly sure, as she's told me herself, that they taught her how to be careful on it. So she isn't an entirely wideeyed Amish kid exposed to the online abyss for the first time.
+Still, if it's limited to seeing Seakings named 'Fuck Yeah', that'd be acceptable. It isn't as if she hasn't heard such words before, after all.
+
+### 3753106  ###
+
+>  _find a forum with younger people that perhaps they could actually talk to over VOIP as well as battle._
+
+I don't know of any forums with such people, though I'm trying to think of some. I don't really browse nintendo or pokeymans forums, y'know? Not that there's anything wrong with that...
+...even so, I'm not sure how much good it would do, as she has yet to initiate contact with anyone her own age when we've been out and about thus far...not peaceful contact, anyway. She has some issues with 'normal' kids...
+
+>  _Doesn't she have REAL friends to play Pokemans with? That would solve most of the problems right there._
+>  _What age is the loli in question, anyway?_
+
+She's seven. Well, eight, in a few months. And no...she doesn't. Not anymore, anyway.
+
+### 3753129  ###
+
+>  _Nurse-kun, I still think it's a bad idea. You just know someone's going to point her to _**_wikichan_**_. And I gather that may not be something you want, what with the 'should i stick it in her pooper /b/?' and stuff..._
+
+That sort of thing would be what I'm worried about...well, not **wikichan**, really, since her only form of internet access is her DS, and she doesn't have the web browser thing I think I saw somewhere once, but problematic mails through trades and such in general, ranging a gamut of various subjects. My best idea is to ask her to let me read them first when she gets one, since she knows how people can behave online, though I'm not sure the game supports that, or such. Been a while since I played one, and not the new version yet.
+
+### 3753132  ###
+
+>  :: _the forums at Serebii.net might be a good choice. If you don't mind her learning the ways of the tourneytard. She can trade, battle, and all that to her heart's content._
+>  _<http://www.neoseeker.com/forums/35864/''>_
+>  _Donno what they're like though, cos you know how kids can be dodgy... (case in point that boy she beat up)_
+
+Thanks. I'll look into those.
+
+### 3753148  ###
+
+>  _\>\>3753083_
+>  _REMEMBERING YOU EXIST AND THEREFORE READING UP ON _**_WIKICHAN_**
+>  _I DON'T KNOW HOW MUCH YOU CAN ACTUALLY COMMUNICATE VIA POKEMONS SINCE I DON'T OWN THE GAME, BUT I HERD THAT CHATOT HAS AN ATTACK THAT LETS YOU RECORD YOUR VOICE. THEN AGAIN, I DON'T KNOW IF THAT WORKS ON WI-FI. JUST THROWING IT OUT THERE._
+>  _ALROUND, GIVING OUT HER FRIEND CODE TO /b/ IS PROBABLY A BAD IDEA, IF YOU WERE CONSIDERING IT. MY 2 CENTS._
+
+I wasn't just going to give it out up front, no.
+
+### 3753229  ###
+
+>  :: _Sup Nurse-kun, anyway, only VOIP is possible, but how would she get someone's friend code, or give out hers in the first place if all she has is a DS?_
+>  _Also, not only does she need to give out her friend code, they need to give you their friend code before any form of battling or trading can be done over wi-fi_
+
+Yes, and as her link to the internets, whether she knows it or not...well, surely you can see where the train of logical conclusion is going?
+
+### 3753289  ###
+
+>  _Good luck then, it's safe. Unless a /b/tard manages to trade friend codes, and decides to spell out a message to ask her to check _**_wikichan_**_ via Pokeman names._
+
+So long as it doesn't have the capability to spell out complex original messages, it's fine. It uses pre-set phrases and buzzwords?
+
+### 3753358  ###
+
+>  _Also, hi Nurse-kun ;_;_
+
+Hi. Cheer up, you guys, it's a beautiful day where I am...and dwelling on the dark won't accomplish anything. I know that, despite my frequent jokes (well, partial jokes) about the toxicity of 4chan, there are probably at least a few people on here that actually care about her. Which is why I'm asking this here, and considering the possibility of trying to find some of those people for friend codes, at all.
+
+People are always saying that I 'restore their faith in humanity' or 'inspire them to do more with their lives' or such, which is hard for me to believe, because I'm just, you know, a guy. But the truth is, a lot of you have given me a new way of looking at Anonymous, as well. Hm, tired, sentimental.
+
+### 3753365  ###
+
+>  :: _with pokemon names, you can put basically whatever you want._
+>  _I doubt /b/ is THAT omnipotent_
+
+Yeah, that'd be a bit much, conceiving a 60 character message by naming their pokemon and sending them out in a specific order...
+
+### 3753463  ###
+
+>  _You still gonna go for her pooper?_
+
+Not right now, no. I need to go to bed.
+
+### 3753468  ###
+
+Time for me to get some sleep, /v/. You were quite helpful, thank you. Seeya.
+
+## /b/ 28663290 Part **23**(b) June 2nd, 2007  ##
+
+Posted as Nurse-kun !!hPl7vWPKR+W
+
+### 28663290  ###
+
+Hey, /b/. Okay, so, she was playing her new copy of Pokemon: Pearl for the DS when I saw her again last night. After filling me in on what'd happened in the game since I last saw her, and commenting on how stupid she thought Team Galaxy's haircuts were, she lapsed into a somewhat more depressed mood, then looked down and said, "I'm such a loser. I can't even play with other people when they build a wireless mode into it.".
+
+Which, naturally, made me feel bad for multiple reasons. Bad enough that I told her I could probably find some people that wanted to play with her on the internet, the only problem being that they were strangers, and that I knew she already knew about strangers on the internet (from her pre-accident days of using it under the supervision of her parents). Still...it had me wondering if the rewards may outweigh the risks. What do you think?
+
+### 28663824  ###
+
+>  _its team galactic faggot_
+>  _lurk moar_
+
+Well, I'm not the one playing it, I was going off her account, and don't have a perfect memory. What can I say?
+
+### 28663963  ###
+
+>  _If you ID her like this, EVERYTHING you've worked for and built will be destroyed in ONE night. From what I've read about her, DON'T do it._
+
+Well, I haven't done it yet, now have I? Frankly, I'm still not even sure entirely how it works, though /v/ sort of helped me a few days back. You can't do much with just someone else's friend code, right? You need to get them to accept yours as well, right?
+
+### 28664179  ###
+
+>  _By the way, Nurse-kun, she can only battle us if we give you our codes as well, so you can choose who to have her fight._
+
+See, this is helpful. Thanks. I believe there's a way to turn voice chat off as well, right? Which I don't think would be much of a problem for her, since she doesn't tend to like talking to people she doesn't know, anyway...
+
+### 28664364  ###
+
+>  _You can find people on the internet in places other than /b/. It would be completely retarded to post it here._
+>  _If you do, don't identify her, just do it in an "ITT friend codes" manner._
+>  _BTW, is it possible to do the internet stuff through no$gba?_
+
+That was the plan, if it seemed at all feasible on other fronts. I wasn't planning to ID her as, well, who she is. The big issue is the voice chat, and the sort of messages and text communication one can engage in over wifi.
+
+### 28664489  ###
+
+>  _i'd prolly go out and buy a ds just to play with her and make her happy, though i'm not the normal /b/tard being a father and all.._
+
+...of course, this is the other side of things. I know this may sound foolish, but I believe that at least some of you might actually care for her, and not in a pooper sort of way. Which would seem, to me, to be a better choice than some random punk on a nintendo forum, who couldn't care less. Thus, the confliction...
+
+### 28664634  ###
+
+>  _Nurse-Kun!_
+>  _I've been thinking lately, why don't you give nintendo a shout about your story?_
+>  _I mean, this girl has regained the use of her hands using one of their products :B_
+>  _They'll pretty much gonna be able to sponsor that, maybe even make a one handed DS for her._
+>  _It's worth a try._
+>  _PS I love you nurse-kun_
+
+Yes, publicity for her is exactly what I'm looking for. Thanks for the thought.
+PS Not really, but I love you too.
+
+### 28664748  ###
+
+>  _Nurse-kun, I don't suppose you watched ABC news last night? They had this young woman on there who 1) was Asian 2) was a triple amputee (with one arm left) 3) just graduated med school._
+>  _<http://abcnews.go.com/WN/PersonOfWeek/story?id=3237024&page=1>_
+>  _Anyway, if amputeechan wants to feel like there's someone out there to relate to, etc._
+
+I saw a news story about her when it was pointed out to me in another thread, in /v/, I believe, yes. Good for her. Still considering whether to show it to her or not.
+
+### 28664966  ###
+
+>  _Nurse-Kun you're awesome, keep it up._
+>  _And I want her friend code. I'm a nice person, I swear._
+Herein lies another problem. Even if I did find decent people on here, how would I get a friend code to them, but not to all the /b/tardegenerates, as well? I don't really do the IMing thing in general, and in particular not as 'Nurse-kun', for security reasons...
+
+...is it possible for her to contact YOU guys if you give me your codes, instead?
+
+### 28665247  ###
+
+>  _Welp, I'll play._
+>  _Lemme get my DS._
+>  _Ill post FC in a bit._
+>  _What cap? 50? 100?_
+
+Um, well, if this does happen, I'm not going to be seeing her until I go in to work tonight, which is at least eight hours away. Also, she just started playing thursday afternoon, and has only beaten two gyms so far. She isn't quite up there yet. (Well, she may have beaten three by the time I see her, but still)
+
+### 28665299  ###
+
+>  _nurse-kun, I heard you're using:_
+>  _!aiGJu3yh2o_
+>  _as your tripcode, what's going on, imposter can't be trusted :(_
+
+Uh, you heard wrong? I guess?
+
+### 28665353  ###
+
+>  _Dood, No contact can happen unless BOTH parties have friend codes._
+>  _Post her code, anon will enter it and NOTHING AT ALL WILL HAPPEN EVER unless you give amputee-chan our friend codes._
+
+Really? See, I thought it worked that way, but I couldn't be sure...of course, thanks to /b/'s nature, I still can't. Is this how it works?
+
+### 28665483  ###
+
+>  _Nurse-kun, any word on the adoption?_
+Since monday? No.
+
+### 28665729  ###
+
+>  _Assuming she's beaten 2-3 gyms, she's atleast 15-20._
+>  _Lowest cap I know of is 50. I know 100 brings you up to 100, dunno about 50._
+>  _Free Game has too much potential to break out 100 legendaries._
+
+Well, she apparently swept the grass gym with just her star-something bird. It seems she couldn't find any fire types, and 'the penguin sucks', so she gave up and just went in with that one, and, well, pulled it off. I thought it was pretty funny, in a cool sort of way. Then she found the fire pony a half hour or so later.
+
+### 28665870  ###
+
+>  _Comming down to it, for this to even happen, we would need some direct contact with you or her._
+>  _Because starting a thread everytime she wants to play will get old and annoying. We won't be on all the time. And as you said, next time you see her is 8 hours away._
+
+Numbers are part of Anonymous' strength, remember? Legion? If I can get a good number of, well, numbers...
+
+### 28666015  ###
+
+>  _Nurse-kun, you are one of the few tripfags I truly respect. So believe me when I say:_
+>  _Do not look to /b/ for playmates for ampu-tan. While it is true that some of us (myself included) actually care about her in a non-pooper way, the vast majority would just be assholes to her. And you damn well know that anybody here is gonna let it slip that you've been telling stories about her all this time, even if it's accidental. And of course it will be blown all out of proportion - say goodbye to chances of adoption._
+>  _All that you've worked for will be ruined._
+>  _Don't do it, Nurse-kun._
+
+If it ever happens, it'll be strictly voice chat off. /v/ told me that the only other way one can actually string letters together is through naming your pokemon and some sort of decorations faggotry, so...it seems possible, at least, to be managed. I mean, I assume nintendo sort of designed it that way on purpose, didn't they?
+
+### 28666087  ###
+
+>  _So this thread is basically:_
+>  _"Can one of you helpful, kind anons play a game over the internet with my handicapped child, but only if you are super nice to her, give her lots of pity, sympathy, and maybe even lose to her on purpose so she will feel good about herself?"_
+
+No, I just sort of implied 'Just plz don't be a dick'. Which should go without saying when playing with anyone, but hey, as you've proven, /b/.
+
+### 28666234  ###
+
+>  _Idea. Go to 10minutemail.com and set up a temporary address. Post that and then screen from there and give any worthy anons the code. Also, this is a terrible idea and if you can block all chat features on DS, you should if you do try it._
+>  _"HAY THARE CRIPPLE I HERD UR NURSE STUCK IT IN YOUR POOPER"_
+
+I'm looking into the viability of some electrical tape over the mic hole as a backup to turning it off via software control. Would that work?
+
+### 28666431  ###
+
+>  _I let people request Nicknames._
+>  _Unless they're going to Japan._
+>  _Some Jap guy has a Magikarp/Gyarados called 4chan_
+
+I meant more for battling and such than traded nicknames. I've heard a lot about seakings named 'Fuck Yeah!' for instance. Of course, living in a hospital, then with a lot of older people with diminishing mental faculties, not to mention health care workers, who are as prone to swearing under their breath as anyone, she's heard enough dirty words to bring her up to speed and desensitize her already...
+
+### 28666641  ###
+
+>  _Nurse-kun, 'nother thought I had:_
+>  _Remember seeing a message from another amputee saying they didn't like receiving help, as it made them seem out of control and helpless._
+>  _I was thinking that getting her a pet, probably something shit like a fish that doesn't require handling or whatever (can be looked after one handed : /) might be good, might prove that her existence is unbelievable important to someone other than you and the whole of /b/ it seems._
+>  _maybe fish not allowed in hospital though :(_
+
+Yeah, any pets, even little goldfish equivilants, aren't allowed at the home...there have been a few visits from one of those 'pets for seniors' programs that bring animals by for a visit every now and then, but she's always stayed at the back of the room and refused to participate when it happened...I think 'losing' her kitty when she lost her home after the accident is still too painful to ignore so far.
+She hasn't nicknamed even one of her pokeymans as far as I can tell, either. I'm not sure if it's connected, though...
+
+### 28666714  ###
+
+>  _\>\>28666520_
+>  _You can't. They have select words. Mail isn't a worry._
+
+Hmm, good to know.
+
+### 28666742  ###
+
+>  _I actually say you have a better chance of finding a decent person on here then anywhere else, but a better chance of the people who want to hurt you hurting a lot more._
+Indeed, the 4chan conundrum.
+
+### 28666792  ###
+
+>  _\>\>28666434_
+>  _We only would inquire whether certain rod-like items have in the past, present, or possible future ever penetrated within said rectumNamely a PENIS_
+
+I already told you, she's only gotten a little way into the game so far. All she's had to handle so far is an old rod!
+
+### 28667148  ###
+
+For the record. She was using the internet a fair amount before the accident, as makes sense for an intelligent young girl from an intelligent young family of professionals. The parents making up the rest of said family having educated her on the perils of the internets, and how to remain safe from said perils whilst surfing the highway, to mix metaphors. She already knows there are 'bad people' out there, as we (she and I) have in fact discussed, when I told her there was a possibility of getting friends codes from said internets. She isn't a wideeyed retarded naif from Amish country, nor a sheltered mystic named after a precious stone, people, even if she is still a child, and thus not nearly fully aware of precisely what constitutes the 'bad stuff' people can do.Just for the record.
+
+### 28667251  ###
+
+>  _\>\>28666859_
+>  _Here's a good screening technique: DONT TELL THEM YOU ONLY WANT THEM TO BATTLE A CRIPPLE WITH FRAIL EMOTIONS FOR WHOM YOU SEEK TO FIND SOMEBODY TO GIVE HER PITY TO HELP HER SHITTY SELF ESTEEM SINCE SHE IS MISSING THREE LIMBS AND HER LIFE TOTALLY SUCKS SAVE FOR THE INVOLVEMENT OF A SUSPICIOUSLY MOTIVATED MALE NURSE._
+
+Yeah, good job on making shit up to bridge 'doesn't have any friends to play with' to 'plz play to her and lose u guys'. At least put some effort into it, man.
+
+### 28667634  ###
+
+>  _\>\>28667148_
+
+Oh, and to follow this up: Since the only computer access available in the facility is for the staff, at workstations and in offices (the policy is not so up to date as to provide internet access to the old people in our place, no siree), her DS is still pretty much her only internets-capable device available to her (possibly to any patient). And she doesn't have that internets program/cartridge/something I've heard about, if it exists at all (I just play the games, yo).
+
+### 28667902  ###
+
+>  _If you really want her to play with people on the Internet:1) It should be girls, because they're less likely to be total assholes.2) You should find them through a normal gaming channel, not through /b/.3) If at all possible, you should screen them first. (I'm not sure how.)_
+
+> >  _quoted for truthSeriously, Nurse-kun, you are smarter than this._
+
+>  _All namefags desire a little attention now and then. Even Nurse-kun._
+
+Look, I don't go to other forums or websites or whatever where I could get some answers and opinions on the intricacies of the game's wifi system, let alone how it relates to her particular situtation. I haven't given out her friend code yet. Geez. Cut me some slack.
+
+### 28668049  ###
+
+>  _\>\>28667251_
+>  _Also, as a kind gesture, she have a favorite pokemon we could try and get for her?_
+
+Well, she apparently had a couple of the gardevoir evolution family in the previous generation, and liked them. And thinks this whole 'lol have to catch 'em all (even if only catch sight of) before you can trade between versions' thing is 'stupid'.
+
+### 28668264  ###
+
+>  _\>\>28667148_
+>  _Dealing with random anonymous bad people is very different from dealing with Random Anonymous bad people. /b/ is filled with assholes who's only pleasure is to fuck with people. It's one thing for her to deal with a trash-talker or pedophile or whatever; she can probably handle that. But what about when some /b/tard names their Pokemon "Stumpy", "Loser", "Orphan", and "Freak"? How much will that hurt her, not only the insults, but the knowledge that you've been talking to random people about her?_
+
+Yes, yes, I GET IT. Christ.
+
+### 28668571  ###
+
+>  _\>\>28668049_
+>  _SO I HERD U LIEK GARDEVOIRS_
+
+Yes, I've known what Gardevoir is for some time now, thanks to /b/. Came up during discussion, when she also said that the Abra-types were 'boring'. I guess mustache magic didn't work so well on her...
+
+### 28668794  ###
+
+>  _Hihi Nurse kun,I've been watching your threads for quite some time, and I've always wanted to talk to you in one.I believe I may have came face to face with you a while back with Amputee-chan, but I promptly was too stunned to say anything.. I mean, there were a few things that were different.. And.. well.. I am pretty sure it was you.. but I've always had a bit of doubt nagging at me.. A few of the differences had to do with amputee chan... But whatever.. I've always reguarded them as being those "Red herrings." You've thrown in..If I wanted to approach you and say hey.. what would be the right way? I mean.. would you freak out? I mean.. :p Blarg.._
+
+Um, well, even if it WAS me, the best way would probably be to behave as you might while being friendly with someone you don't know. Social contract and all that. If you're okay with just going up to someone you don't know and saying hello in a friendly manner, well, more power to you, just be ready for the chance it isn't me, and consider accordingly.
+
+### 28668910  ###
+
+>  _\>\>28668049_
+>  _Actually, Its possible to have any pokémon before you "See the 150"._
+
+If anyone Trades her anything it'll work, Its just the GTS where you have to see it first before you can get it.**' I think she was talking about the system for trading between GBA carts and the new games, but, right. She's hesitated at going into GTS and such so far.**
+
+### 28668978  ###
+
+>  _i know teasing could be a problem, but how hard WOULD it be to find her some irl friends? i mean you got to have some neighbors or something with little kids too. at the least you could get a friend code from them or something_
+
+Well, like most people in America, I actually don't know my neighbours very well. Not well enough to just say 'Hey, does your kid play pokeymans? Because I need t-d-don't shoot! I'm leaving!'.
+
+### 28669050  ###
+
+>  _Greetings Nurse-Kun.I won't submit my friend's code though, cause I'm rarely on WiFi (Got Diamond). Maybe in the near future.I need some motherfucking Pearl Pokemans._
+
+She'll need some motherfucking diamond pokemans. Maybe. Seems to be happy with her misdreavus(did I spell that right?) so far.
+
+### 28669094  ###
+
+>  _\>\>28668264_
+>  _I wasn't trying to be harsh, just insistent. We're all rooting for you, Nurse-kun. Don't forget that._
+
+I know, sorry. It's just that everyone's acting like I'm throwing her to the lions while drooling all over myself, here. And I'm not. Give me some credit, you know?
+
+### 28669268  ###
+
+>  _I don't suggest it. I think you should really try using another outlet for communication. Using /b/ is just asking for trouble. If you had another outlet, you might have a better chance of decent people._
+
+She isn't interested in communication, she's interested in some pokeyman fights and maybe some trading. And stuff. I'm just trying to think about how easily one can mess with that in a nintendo game, and how to handle that creativity.
+
+### 28669545  ###
+
+>  _\>\>28668794_
+>  _Awright, Awright, Awright. >:3But.. I mean.. .... How many guys(Looked to be late twenties) running arround with an adorable loli can there possibly be? @.@BTW.. you reminded me of a slightly stockier subway commercial guy.. I forget his name, but the guy(You, or whoever) reminded me muchly of him, in physical appearance. I mean.... really average._
+
+Hey man, screw you. I don't look anything like that dick! Must've been some other loliherder...
+
+### 28669614  ###
+
+>  _On non-pokymans related news:_
+>  _Anything else going on?_
+>  _How's your dad?_
+>  _Anymore trouble at the nursing home? At your home?_
+>  _Were they cool with her sleeping at your house? Any chance of her going again?_
+
+Nothing special.  
+Dying.  
+Not really. Not really.  
+Turned out okay in the end.  
+Perhaps, though I'm not going to push it, my place is boring, anyway.
+
+### 28669677  ###
+
+>  _tl;dr did you fuck her yet?_
+
+No.
+
+### 28669808  ###
+
+>  _\>\>28669236_
+>  _i am intrigued. You must talk like you were asking a stranger the time, but then slip in a 'btw, sup b?'depending on response, dont freak out. ask if he is a caretaker or a nurse, maybe give him your phone number or email address, and promptly leave. supposing it is him and he finds you decent enough, you'll get a call or email. in a perfect world, of course._
+
+That, or he'll come to your place and brutally murder you in your home, then use his experience in the ER and the OR to dismember your corpse and dispose of it in an untracable manner!Maybe.
+
+### 28669937  ###
+
+>  _The penguin does not suck. The turtle sucks._
+
+The penguin did seem to suck, from what she showed me. Some 20 power bubble attack, and pound and stuff at level 15? It's no mudkip (which seems to have been her favorite from the previous generation, daughter of /b/ that she is...).
+
+### 28669980  ###
+
+>  _\>\>28669614_
+>  _has she gotten healthy again?_
+>  _and are you healthy again?_
+
+Well, if by 'healthy', you mean 'not sick with an infection of some sort', then yes.
+
+### 28670373  ###
+
+>  _Holy shit a Nurse-kun thread I am actually here for!_
+>  _Bud if I had pokemon (and a DS), I'd sure be up for playing her. Alas, I don't have either, except for an old version of Blue and Red and my old GB color. *sigh* That said, it would probably be unwise to give out her friend code or whatever (forgive me for not knowing how it works, like I said I don't have a DS), too many immature /b/tards in the masses, I'm afraid. You dont want to risk anything, not just for you being found out, but for her own sake. With her sensitive nature and overall _**_damaged_**_ mental state (hope that term doesnt offend you, but i cant really describe it otherwise), you dont want to risk someone saying something to here, text message or otherwise, that would hurt her. I mean, with the idiots in /b/, I'm sure half the people would want to say something along the lines of "SUCK MY COCK BITCH". Don't risk it._
+
+
+>  _Few questions for you if you have the time pal:_
+>  _1. Kind of relating to the thread, but how has Amputan been doing as far as being more open around you and others? I'm sure you two are progressing, but it sure as hell would be sad if she keeps herself closed off from her emotions. From what I have read on the wiki, she even has a hard time looking you in the eyes when she is talking about something emotional. Poor girl._
+>  _Question 2: How's she feeling now? Last I checked, she chilled at your place for some R&R. It's nice that they allowed you to do that._
+>  _Question 3: Any chance you can post the recipe of the soup? I can go for some right now, if I dont seriously fuck it up with my horrible cooking skills._
+>  _Last Question: Any updates on the adoption process? Has she ever mentioned she would want to go to your place again for a while, to get out of the home or whatnot?Epic thread. Best of luck to both you, its real nice you take such good care of her. The girl needs it.*commence "gtfo emofag" posts from the trolls._
+
+1. Still **damaged**. I can only accept it, try to be understanding, and attempt to help with her repairs.
+2. She's all better, and back to her chipper, energetic, non-coughing and queasy self. I'm glad it worked out all right on the SW and administration side as well.
+3. I'm sorry, I don't have it on me, as it's my mom's recipe and she hasn't taught it to me yet (just my sisters). I'll try and get ahold of it, though.
+
+Still ongoing, no change from my last thread-time. We went on a picnic on wednesday, and I'm considering something for either tomorrow or monday, depending on scheduling, weather, difficulties with my dad, etc. Nothing about my place in particular, other than telling me I should dust more.
+
+### 28670588  ###
+
+>  _\>\>28669677_
+>  _also, you could try out the friend codes playing instead of her for a few sessions to check them out before deciding whether or not the people behind the codes are decent or not._
+
+Something I've considered, doing a little 'undercover as loli' work, though I'm not sure how well I'd pull it off, and, well. I don't think I'd pass very well, chief. You don't know what it's like out on those streets, chief! You don't know what they'll do, who they'll cut, who they'll sell, just to get their hands on another fresh loli!! I ain't going out there unprotected!
+
+## /b/ 28671155 Part **23**(c) June 2nd, 2007  ##
+
+What's with /b/ and making my threads suddenly disappear as of late? Is there some new auto-deletion limit I'm unaware of or something?
+
+Ah, well. Hm. If anyone has anything else to say in regards to the previous thread's topic, feel free. Perhaps I should start a thread somewhere else as well, these codes...
+
+### 28671362  ###
+
+>  _Yes, new post limit =(_
+
+What is it? Last time I posted before monday, there wasn't one I was aware of, and before that, it was 500.
+
+### 28671481  ###
+
+>  _New post limit is 100 images / 250 posts._
+
+Ah, thank you. Well, that explains that. And makes the possibility of multiple threads per day in the future more likely, I say with no boasting or anything similar. Unlimited was a bit easier to keep track of...why was it changed?
+
+### 28671518  ###
+
+New thread in the videogames text board, by the way.
+
+### 28671769  ###
+
+>  _You were all being incredible fags, please continue._
+
+Will do. Thanks for the reminder, fag secretary!
+
+### 28671954  ###
+
+>  _Nurse-kun, think the thread ended when it should have, post limit or not.Not much more to add, you asked if releasing her friend code so she could have company outweighed the fact that it could be bad company.answer was a pretty resounding:for every good /b/tard, there's 10 that'll give her abuse.whether it's through mic, chat or the names of the pokemon, there's no stopping them :(_
+
+Yeah, but I'm also a bit bored, and don't have much else to do. So here I am.
+
+### 28672508  ###
+
+>  _MEDICAL QUESTION:wtf do i do about my horrible dandruff?_
+
+Buy a dandruff shampoo, see a dermatologist if it remains horrible after treating it with conventional means. Or buy cream colored shirts.
+
+### 28672563  ###
+
+>  _So nurse-kun. Are you going to get ose tatakae ouendon 2?_
+
+Already got for her, arrived yesterday. She hasn't started playing it yet, though, was a bit busy with other matters.
+
+### 28672597  ###
+
+>  _Seriously, Nurse-kun, get a Wii._
+
+Seriously, not made of money here, people. The underpaid nurse is not a myth.
+
+### 28672619  ###
+
+>  _So, yeah._
+
+Pooper? That's where we poop from?
+
+### 28672830  ###
+
+>  _\>\>28672563_
+>  _What other DS games she has. AFAIR she has Cooking Mama... anything else?_
+
+Off hand recollection: EBA, Ouendan 1 and now 2 (still unplayed as of last I saw her), Pokemon DS (duh), Cooking Mama, Mario Kart DS, Phoenix Wright 1 and 2, the Metroid DS games...um...that's all I can think of at the moment? There are others, though.
+
+### 28672899  ###
+
+>  _\>\>28672619_
+>  _Nurse-kun, you're so awesome I'm not even going to say "lurk moar" because I know that you know that I know that you know what he meant._
+
+I'll just give you a knowing wink, man. There, I just did it.
+
+### 28673196  ###
+
+>  _Hey Nurse-kun.Occasionally when I masterbate, I get a really bad headache for about 5 minutes. Whats that mean?Also:When I masterbate, I usually get really tired before I finish, near to the point of sleeping, but never able to sleep.Any help?_
+
+It's because you touch yourself.
+
+### 28673296  ###
+
+>  _\>\>28672830_
+>  _Wow, her collection is really nify. Has she tried WiFing with Mario Kart or is Pokemans her first adventure into land of NintendoWiFi?_
+
+No wifi with the mario kart as of yet...or as of since the accident, anyway. It's hard to play well with the one fully functional hand; we just play single player cooperatively together, as it is. I think she'd just played face to face with her friends previously.
+
+### 28673661  ###
+
+>  _<http://en.wikipedia.org/wiki/Friend_codesDO> NOT DOUBT THE WORDS OF WIKI._
+
+Hmm...that's very interesting. So, what I've come to thus far as far as conclusions go: Anyone having her friend code is useless unless she has theirs and adds it to her list or something. I assume one can remove friend codes, and thus access, as well?
+
+### 28673928  ###
+
+>  _\>\>28672830_
+> >  _phoenix wright is awesome!_
+>  _OBJECTION!!It's awesome 'till you beat it. Then there's almost no point in playing it ever again._
+
+HOLD IT!The game's replay value has no bearing on whether the game is awesome or not, much like movies, film, and books having no replay value does not affect their worth!TAKE THAT!! I think it's fair to say that expecting replay value out of a text adventure/mystery that isn't generated randomly is a faulty assumption to say the least! It is YOU that is in the wrong here! *speedlines*
+
+### 28674143  ###
+
+>  _HOW DOES AMPUTEE SNAKE_
+
+She handles the direction pad and L button, I handle the other buttons and R?
+
+### 28674327  ###
+
+>  _\>\>28674143_
+>  _why do you make statements into questions?_
+
+Is that wrong for some reason?
+
+### 28674516  ###
+
+>  _Hypothetical Situation:She comes onto youand wants to sex you.WHAT DO YOU DO!_
+
+RL does not work that way!
+
+### 28674581  ###
+
+>  _\>\>28674327_
+>  _yes. horribly wrong.and that one didn't count because it was actually a question. so you failed._
+
+What do you mean?
+
+### 28674710  ###
+
+>  _\>\>28674581_
+>  _what do you think he means?_
+
+If I knew that, I wouldn't be asking?
+
+### 28674785  ###
+
+>  _\>\>28674710_
+>  _or would you?_
+
+I probably wouldn't?
+
+### 28674901  ###
+
+>  _Dunno if you saw this nurse-kun before the 1st thread got deleted...Question: Does Amputan listen to "The Pillows"? They are a pretty damn good J-rock band. Not to shove the whole Japanese thing down her throat of course, but seriously, very good band. Nothing to hard and heavy, nothing to soft and depressing. Kind uplifting, actually.Have her listen to the "Fool on the Planet" album._
+
+Uh, okay, I'll write that down somewhere? I'll totally look into it?
+
+### 28674916  ###
+
+>  _RAPE YOUR FAKE DAUGHTER_
+
+I don't have a fake daughter?
+
+### 28675056  ###
+
+>  _\>\>28674785_
+>  _... That's just a declarative statement with a question mark tacked onto the end!_
+
+I guess it might be? It's a tad ambiguous? I could be more clear?
+
+### 28675191  ###
+
+>  _That boy needs therapy!_
+
+Therapy is fake? Shrinks just want your valuables? It's clear. Hail Xenu!?
+
+### 28675330  ###
+
+>  _Stop it! This is getting silly!_
+
+This isn't silly?
+
+### 28675434  ###
+
+>  _\>\>28675016_
+>  _I saved the thread, ill upload it later. a text transcript of nurse-kun's responses have been uploaded as part of _**_chapter_**_ _**_23_**_, but not formated, so it hasn't been added to the _**_damaged_**_ _**_goods_**_ registry yet. I'm going to add similar transcripts for this thread, the /v/ thread, and the dis.videogames thread once I'm done with this one, since they all center around pokemans, and having 4 seperate chapters based on pokemans seems retarded._
+
+Such dedication. I don't think I deserve it. I'm just a dumb nurse.
+
+### 28675696  ###
+
+>  _\>\>28675330_
+>  _Nurse-kun saves lolicuz amputees are sexyher pooper, stick it._
+
+The loli is cute.Too cute to take advantage.Already stuck it.
+
+### 28675973  ###
+
+>  _O SHI- Posting in a Nurse-kun thread!Anyway, If you or Amputee-chan has a PS2 or Xbox360 you should get her Guitar Hero one or two. Most of the hard work is with the left hand, only up and down movement with the right._
+
+How precise are they?And how vigorous as well?A sluggish elbow.
+
+### 28676151  ###
+
+>  _Posting inA haiku threadHabeeb it!_
+
+Sadly, my dear friend.You fail at math or haiku.Five, seven, then five.
+
+### 28676243  ###
+
+>  _\>\>28676151_
+
+But don't give up yet! You can always try again.Success lies ahead.
+
+### 28676333  ###
+
+>  _You have to keep quite a fast up and down strum with most of guitar hero and it might be a bit too fast for her to keep up with I would imagine._
+
+Myoelectric. Motors made of wire and steel.They're no substitute.
+
+### 28676496  ###
+
+>  _Why do you ask so many questions?Get her an R4 or M3 or something,it costs the same as about 1 game, by now enough money would have been saved for a Wii.Plus movies and homebrew and whatnot._
+
+Uninformed, am I.The matters of piracy.Elude me. Avast!
+
+### 28676631  ###
+
+>  _\>\>28676496_
+>  _Get her an M16 instead. Much more fun._
+
+The jungles of 'Nam.My dad's boyish outlook, gone.P90's her size.
+
+### 28676749  ###
+
+>  :: _\>\>28675663_
+> >  _you could probably easily mod a guitar hero controler to mount the strum bar up on the neck behind the fingerboard for left thumb access._
+>  _I dunno, that would seem a little too cumbersome. Maybe Nurse-kun should just strum for her._
+
+Nurse-kun's rhythm sucks.He is limited to taps.Directing agents.
+
+### 28676826  ###
+
+>  _English Haikus suck_  
+> _They just work in Japanese._  
+> _Even this one fails._
+
+For a purist, true.  
+But she is American.  
+We rape all cultures.
+
+### 28676997  ###
+
+>  _\>\>28676749_
+>  _You fail at rhythm?Rhythm games are not for you.What games do you like?_
+
+Nurse-kun, musical? No.Tone-deaf would be far too kind.Success through hard work.
+
+### 28677113  ###
+
+>  _\>\>28676496_
+>  _It is a "passkey"Put an SD card it inThat has all the games._
+
+I believe you slipped.'In it' would be more correct.Grammatically.
+
+### 28677207  ###
+
+>  _NURSE-KUN! a true hero indeed.just before i go to bed, write me a haiku!thankies /b/uddy! keep on winning at life!_
+
+Neuro was too much.Nurse-kun couldn't take it all.Ran away to 'Home'.
+
+### 28677425  ###
+
+>  _hay guys stop sucking his dick so hard, it's gotta be getting pretty sensitive by now._
+
+Attention for me.Because you touch yourself, boy.At night, undercover.
+
+### 28677520  ###
+
+>  _Yays, I sees a nursey thread! Wish me luck. I'm going to start volunteering at a hospital starting Monday. My second year now. I hope I get to work in the OR again._
+
+Oh, really? That's great!Volunteers are as the sun.For our work's green heart.
+
+### 28677597  ###
+
+>  _\>\>28676151_
+>  _Whoops! I DISGRACED THE SACRED ART OF HAIKU!SEPPUKU TIME!_
+
+> >  _\>\>28676826_
+> >  _That's not what I meant.They are stupid anyway. Even moreso here._
+
+All things are stupid.There is no meaning at all.Which is why we strive.
+
+### 28677782  ###
+
+>  :: ::: _sage_
+
+> >  _GET OUT, NAMEFAGS_
+
+>  _BAWWWW_
+
+Your tears taste like wine.Aged in your rotten bodies.I delight in them.
+
+### 28677851  ###
+
+>  _\>\>28677597_
+>  _Haikus are to slow.You are like 10 posts behindYou better hurry up._
+
+Rome was not built quick.  
+Haste makes waste or so they say.  
+Cry more, dear shota.
+
+### 28678081  ###
+
+\>\>28677929**'
+
+Oops, did you slip up?  
+Fail like that is great success!  
+Party time, excellent.
+
+### 28678274  ###
+
+>  _\>\>28677851_
+>  _Cry more I will not.My tears do not taste like wine.They are more salty._
+
+And yet, you concede.  
+You don't even try to stop me.  
+From lapping them up.
+
+### 28678373  ###
+
+\>\>28678037
+
+I struggle onward.  
+The perpetual failure.  
+All I touch, ruined.
+
+### 28678502  ###
+
+>  _How about freeform?_  
+> _fuck this sage its gay_  
+> _I sage it for all time_  
+> _just like that don't you see that it is fake you ignorant mother fucking gaiafags fuck off_
+
+I have no biases.  
+Freeform is just fine, really.  
+Bored, thus, all haiku.
+
+### 28678621  ###
+
+>  _Posting in Haiku?_  
+> _Nurse-kun, you amaze me so._  
+> _Here is my attempt._
+
+Poetry, a gift.  
+Mankind's intellect, manifest.  
+Words, shaped into song.
+
+### 28678694  ###
+
+>  _\>\>28675663_
+>  _about this, Nurse-kun have you seen that one handed xbox360 control custom made for amputees._
+
+<http://benheck.com/Games/Xbox360/controls/1hand/singlehandcontroller.htm>
+
+Indeed I have, yes.  
+Someone pointed me to it.  
+A few threads ago.
+
+### 28678813  ###
+
+>  _lol oh my god every time someone says "amputee" i just lose it! funniest thread on /b/ right now; right here._
+
+Amputees are always fun.  
+Freakshows and beggers alike.  
+Give us a good laugh!
+
+### 28678876  ###
+
+\>\>28678785
+
+Don't feel too bad, man.  
+It was on topic and nice.  
+Thanks anyway, dude.
+
+### 28679100  ###
+
+>  _Old? Gay?Like Decks?_
+
+Classic This Old House.  
+This week: We repaint the deck!  
+A pretty rainbow.
+
+### 28679220  ###
+
+Excuse me, good sir.  
+You seem to have misplaced this.  
+Your 'sage', I believe.
+
+### 28679331  ###
+
+>  _Haikus can get old after a bit.Somtimes I like to switch things up.I guess for the next few posts,I will just posts nonets.Unless they get hard,then I will switchright back tohaikus,k?_
+
+That's okay, really.  
+Opportunity rarely strikes.  
+So I'm having fun.
+
+### 28679436  ###
+
+\>\>28679220
+
+The taliban gasped.  
+Then, he dropped his Soviet gun.  
+"Oh god, it is true!"
+
+### 28679608  ###
+
+>  _nurse-kun, you are a disgusting pedophile, and you will cause unbearable pain (especially in the long term) to this already damaged poor little remnant of a human being. you are sick._
+
+Alone in the world, now.  
+Her beloved parents, gone.  
+No one seems to care.
+
+### 28679751  ###
+
+Her mother's family.  
+Her birth proof.  
+The lie they've told.  
+The truth, manifest.
+
+### 28679879  ###
+
+They will not see her.  
+Her father's grandmother, dead.  
+Breast cancer, Ninety.
+
+### 28679976  ###
+
+And so, the system.  
+The final destination.  
+For those unwanted.
+
+### 28680083  ###
+
+Who cares? Do you, sir?  
+Care enough to do something?  
+Words don't wipe tears dry.
+
+### 28680179  ###
+
+I know that I'm flawed.  
+I'm not the saint some believe.  
+Even so, I'm there.
+
+### 28680341  ###
+
+Until, at least, CRASH!  
+THey break down the door and whoosh.  
+Oh crap. Party-V@.
+
+### 28680517  ###
+
+>  _POSTING IN A NURSE-KUN THREADIf this were 38,000 years in the future, would you sign Ampu-tan up for the Adeptus Mechanicus? Would she become one with the_
+
+She'd never get laid.  
+No, servitors do not count.  
+Rouge traders, baby!
+
+### 28680609  ###
+
+>  _Nurse-kun, Nurse-kun!Will you raise Ampu-tan to become like Samus Aran?_
+
+Well, that would be hard.  
+I mean, I do lack one thing.  
+I'm not a bird, yo.
+
+### 28680736  ###
+
+\>\>28680517
+
+Clearly, I meant rogue.  
+Rouge is something that whores wear.  
+She's no pro just yet.
+
+### 28680820  ###
+
+>  :: _did anybody save the other threads?_
+>  _yes. Ill upload rapidshares later..._ (you can find it here [[Story:DamagedGoods#Links --[Sarafan](User:Sarafan) 05:14, 3 June 2007 (BST)]] )
+
+I feel somewhat bad.  
+I mean, this is hardly gold.  
+So much work for fail.
+
+### 28680938  ###
+
+>  _\>\>28680609_
+>  _But she could get her own baby Metroid ;_;_
+
+But also Ma Brain.  
+And shooting giant lasers.  
+Is unladylike, dear.
+
+### 28681075  ###
+
+>  _SAGING THE PEDOPHILIC NURSE KUN(x20...)SAGING THE PEDOPHILIC NURSE KUN_
+
+Fighting the good fight.  
+Internet toughguys, Pissing.  
+Into yellow seas.
+
+### 28681296  ###
+
+>  _\>\>28680938_
+>  _Unladylike, but awesome._
+
+She's awesome right now.  
+Why can't she blast people, here?  
+Like Rally Vincent?
+
+### 28681481  ###
+
+>  _\>\>28680820_
+>  _meh, its what the people want. who am i to complain if it gets wikichan more hits?Just dont go starting threads about the consistency of your morning shits or anything like that._
+
+I don't check that.  
+I already deal with shit.  
+Every night shift.
+
+### 28681601  ###
+
+>  _yo Nurse-Kun. Sorry if you answered this in the past, I can't remember. Did you ever get your film developed? Just curious._
+
+Look, just forget it.  
+The film is a lost cause now.  
+Lost in this hovel.
+
+### 28681764  ###
+
+>  _Nurse-kun, keep tryingand your haiku will improveand become epic_
+
+Appears unlikely.  
+Nevertheless, it continues.  
+Because I'm bored.
+
+## dis.vg 1180821777 Part 23 (d) June 2nd, 2007  ##
+
+threads in 4chan BBS tend to stick around for a while. drop by and leave your friend code, maybe you'll get a chance to play against amputan's [pokemans](/pokemans).
+* <http://dis.4chan.org/read/games/1180821777/>
+
 <a id="adtxt"></a>
+## Remastered text not found :(
+After the last chapter, Nurse-kun wasn't heard from on 4chan for well over a year, leaving many of his fans hanging and the story unfinished.
+
+Why didn't Nurse-kun update anymore? Some say that something happened during the friend code swap, or that an anon found Nurse-kun and creeped him out. Others say that he died in a car crash. Maybe he just forgot, or had no time.
+
+Gravely worried that he could have died or been V&, Anonymous attempted to find him anyway, and on the last text thread he made, they discussed to find out the truth. The results are saved in the sections below. Since 4chan text threads are never deleted, that thread spans 4 years of replies, so check it out if you're interested.
+
+[[Shii]] thinks he was most likely afraid of being stalked by /b/. It probably wouldn't look good on the adoption papers for him to be associated with weirdos from the Internet and pooper jokes. In terms of how notorious 4chan became in 2008, it was probably a good move...
+
 <a id="chapter24"></a>
+## Chapter 24 - Epilogue
+[Posted to /tg/ on September 22](http://suptg.thisisnotatrueending.com/archive/2642353/) with proper tripcode; attested by a witness.
+
+## Anonymous 09/22/08(Mon)17:20 No.2642353
+
+My little sister has asked me to make an army for her to play in Warhammer Fantasy and another for Warhammer 40k. And like the brother that I am, I don't really want to deny her the ability to play any games with me and my gaming group. However, I don't know what army I should build for her.
+
+What army would /tg/ suggest I make for a little girl to play in both of the games I mentioned?
+
+## Nurse-kun !!hPl7vWPKR+W 09/22/08(Mon)20:34 2643772
+Good work, OP.
+
+Speaking as someone in a not entirely dissimilar situation, I've found that my girl, when I've let her play my copy of Dawn of War (haven't played tabletop in years), liked the Imperial Guard the best. I couldn't get her to admit why this was, but she does seem to highly enjoy employing artillery barrages, backed up by a mix of heavy weapons squads and masses of guardsmen.
+
+With me sitting nearby to act as 'Military Advisor' if she's having any trouble.
+
+## 2644012
+Haha, no.
+
+But my life did get busy enough that I stopped posting about it on 4chan.
+
+## 2644053
+She's fine.
+
+At the moment, she's sitting across the room from me, watching what looks like an episode of Avatar, on DVD.
+
+She likes Toph.
+
+## 2644062
+I'm telling you, I didn't write [LCB](http://1d4chan.org/wiki/LCB).
+
+## 2644163
+Okay, okay, fine. Summary.
+
+She's doing fine, I'm doing fine, we're doing fine together, in a new place, which we're (well, I'm) renting, her education and various therapies are going quite well.
+
+My father died, my family and I have been dealing with it as best we can, my mom loves her, she likes my mom, and various other members of the family to varying degrees.
+
+I've been working part-time at a new job, and that's going pretty well. She enjoys Avatar, Dawn of War, my Muppet Show DVDs, and we play a mean dual-game of the touhous.
+
+Ze end. Back to discussion of OP's quandry.
+
+## 2644285
+I will just say this, then I'll go back to lurking.
+
+It IS adorable to hear a young girl 'WAAAAAAAAAAUGH'. Even if it's barely above a whisper, solemn-faced, while she's directing a squiggoth to crush a Tau commander. That may factor into your decisions.
+
 
 ## Saving the story
 

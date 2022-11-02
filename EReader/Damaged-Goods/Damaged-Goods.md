@@ -6132,7 +6132,7 @@ Well, no need to trouble yourself on my account. But thanks for the well-wishes.
 
 ## Image Flood  ##
 
-Nurse-kun engages in an Image posting war with anonymous for a few a bit.
+Nurse-kun engages in an Image posting war with anonymous for a bit.
 
 ## 25685735  ##
 

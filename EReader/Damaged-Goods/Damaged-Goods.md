@@ -40,9 +40,15 @@ It does more than just tell a riveting tale about one guy and a girl; it gives a
 19. [Chapter 19 - I Hate That Girl in Elite Beat Agents](#chapter19)
 20. [Chapter 20 - Pool's Closed](#chapter20)
 21. [Chapter 21 - Duet Dans L'Eau](#chapter21)
-22. [Chapter 22 - Maison Encore](#chapter22)
+22. [Chapter 22 - Maison Encore](#chapter22a)
+    1. [Part 1](#chapter22a)
+    2. [Part 2](#chapter22b)
 23. [Chapter 23 - Of Pokemans and Haikus](#chapter23)
-    1. [Addendum: Finding Nurse-kun](#adtxt)
+    1. [Part 1](#chapter23a)
+    2. [Part 2](#chapter23b)
+    3. [Part 3](#chapter23c)
+    4. [Part 4](#chapter23d)
+    5. [Addendum: Finding Nurse-kun](#adtxt)
 24. [Chapter 24 - Epilogue](#chapter24)
 
 <a id="chapter1"></a>
@@ -2647,7 +2653,7 @@ Again, though, I won't be taking any pictures of her, or if I did, they won't be
 
 ### 19729011  ###
 
-> _re: "So, I'm curious. Assuming there is no outside interferense, how long is Ampu-chan supposed to stay at the clinic where you work? I mean, with the old people I can accept the length of "until they die LU­LZ", but how does that work with someone who (conceivably) still has a long time to live?"_
+> _re: "So, I'm curious. Assuming there is no outside interferense, how long is Ampu-chan supposed to stay at the clinic where you work? I mean, with the old people I can accept the length of "until they die LULZ", but how does that work with someone who (conceivably) still has a long time to live?"_
 
 That's the thing, there isn't generally a very well established set of procedures for people in situations like hers. While there are group homes and foster homes that accept disabled children, none of them HAVE to accept them, and when they have problems as serious as she has, they rarely will...and when they do, it rarely goes well. Group homes are run by professionals, and generally know when they can't handle a patient, and thus don't try something they think will fail miserably for them. Foster homes, and I'm talking about good ones here, generally specialize in either mental or physical disabilities, rarely both, and even the most dedicated are rarely up to the level of problems she has.
 
@@ -2704,8 +2710,6 @@ But the fact that she's gotten better with one person gives one hope that she mi
 Well, I haven't had the opportunity to actually meet her physical therapists, but from what I've heard through the nursing grapevine on the subject, she's very...committed...to the rehabilitation, but still somewhat short on 'committing' to the nurses involved in it. She isn't outright abusive or anything, but she doesn't seem to have been outright friendly with them, either, more the general way she behaves with almost everyone, even me at times, still: withdrawn, distant, hard to reach. Not 'Rei'-ish and empty, just...withdrawn. It's a pretty common PTSD symptom, particularly in kids...
 
 Anyway, with our resident headshrinker, from what she's told me herself, she's a troublesome patient. Vastly more lucid and 'together' than the majority of her other patients (those being the geriatrics), but at the same time, more difficult to deal with, due to the aforementioned withdrawing and reluctance to open up to others, particularly, it seems, shrinks, which she's had a lot of in the months since the accident. She refuses to even participate in play therapy, for example, and threw the amputee doll that was procured for her, saying it 'wasn't broken enough', as it was only designed with removable legs, her particular level of...damage...not really being common enough to make said dolls to match. In any case...trouble, yes...she's been trying to arrange a setup for her to see some of the pediatric specialists at the hospital again, but navigating the bureaucracy of the companies involved has been hard work, even with some he;lp from her social worker. It's a mess, yes.
-
-![lol not a coincidence](1170035325673.jpg)
 
 ### 19732509  ###
 
@@ -3449,7 +3453,6 @@ I'm happy to have provided a new hobby to people so desperately lacking in thing
 
 ### 20544816 ###
 
-![Dan Kim's Valentine Thingy](1171505623452s.jpg)
 > _>>20544341 was it anything like this? If so don't throw it so hard you fuck._ **(image of soccerball impact a man's face)**
 
 ...I was speaking hypothetically. I haven't actually had an opportunity to play catch with her yet, and probably wouldn't, since she'd just wind up embarassed, most likely. Particularly since there was an incident with one of my colleagues, though, who tossed her something, playfully, once, not thinking, and when she missed catching it by a foot or so, kind of surprised it'd been tossed at her in the first place, she dropped into a depressive state for the rest of the day, refusing to speak to anyone about anything. Until I came in later, and she complained to me, bitterly, about how the nurse in question was 'making fun of her', and almost started crying as she talked about it.
@@ -3464,6 +3467,8 @@ Heh, well, who can find Waha objectionable...?
 But should it be one big page-sized Waha, or a ton of tiled mini-Wahas?
 
 ### 20545034 ###
+
+![Dan Kim's Valentine Thingy](talktome.png)
 
 > _print those nana valentine's day cards from dan kim's website_
 
@@ -4318,7 +4323,7 @@ She seemed much more relaxed on this trip, and even had a bit of fun I would say
 <a id="chapter19"></a>
 ## Part 19 (April 3rd, 2007) ##
 
-This Nurse-kun now uses the tripcode "**Nurse-kun** !!hPl7vWPKR+W" for identification purposes. Remember kids, real [[tripcode]] aren't bold, only the Username portion.
+This Nurse-kun now uses the tripcode "**Nurse-kun** !!hPl7vWPKR+W" for identification purposes. Remember kids, real tripcode aren't bold, only the Username portion.
 
 ### 23586286 ###
 
@@ -4621,10 +4626,10 @@ She sings very well, the few times I've heard it...and even those were just sort
 ### 23601611 ###
 
 > _I remember you saying she used to play the piano and violin. I started to wonder what she could play now, as she'd likely want to stay in music, that could be played with one hand. I was thinking, perhaps a Continuum? As I'm not good with words, I'll just link to the wikipedia article._  
-> _<http://en.wikipedia.org/wiki/Continuum_%28instrument%29''>_  
+> _<http://en.wikipedia.org/wiki/Continuum_%28instrument%29>_  
 > _I've actually seen the instrument played with one hand. Quite well at that. However, looking into it, it costs $3000-$5000._  
 > _I don't know, just thought you might find that helpful and/or interesting. Here's the official site, if the price hasn't already scared you off._  
-> _<http://www.hakenaudio.com/Continuum/''>_
+> _<http://www.hakenaudio.com/Continuum/>_
 
 Huh, I'll have to look into that...though the price is a bit wince-inducing, yes.
 
@@ -4963,7 +4968,7 @@ Night.
 ## Part 20 (April 10th, 2007)  ##
 
 This Nurse-kun uses the tripcode "**Nurse-kun** !!hPl7vWPKR+W" for identification purposes. Remember kids, real [Tripcode](/Tripcode) aren't bold, only the Username portion.
-![ Attached image. ](1172454858691.jpg)
+![ Attached image. ](Sad_Amputee-Chan.jpg)
 
 ### 24182049  ###
 
@@ -5517,7 +5522,7 @@ Well, they're less dramatic. Since I can't post every day now, and people didn't
 
 A what now?
 
-> _[http://abstractnonsense.info/?page_id=8 [1]]_
+> _[http://abstractnonsense.info/?page_id=8 [1_
 
 ...huh. Well.
 
@@ -5850,8 +5855,8 @@ I'll keep that in mind. It'd probably freak me out more if it happened there tha
 I need to get going, /b/. Off to work another shift, another night, till comes the dawn. See you around.
 
 
-<a id="chapter22"></a>
-# Part 1  #
+<a id="chapter22a"></a>
+# Chapter 22 Part 1 #
 
 04/28/07(Sat)05:29:21 Nurse-kun !!hPl7vWPKR+W
 
@@ -6668,7 +6673,8 @@ And that was that...she told me all of this one night last week when I stupidly 
 Anyway, here are some zombie boobies.
 (hot pic, end of first thread)
 
-# Part 2  #
+<a id="chapter22b"></a>
+# Chapter 22 Part 2  #
 
 05/29/07(Tue)15:44:49 Nurse-kun !!hPl7vWPKR+W
 
@@ -6892,6 +6898,7 @@ And so the trip 'home' was uneventful, because I'm kind of tired and running out
 ## Chapter 23
 This **chapter** consists of 4 threads, one frome dis.videogames, one from /v/, two from /b/. They are made of pokemans and friend codes.
 
+<a id="chapter23a"></a>
 ## /v/ 3752736 Part **23**(a) May 31st, 2007  ##
 
 Posted as Nurse-kun !!hPl7vWPKR+W
@@ -7041,6 +7048,7 @@ Not right now, no. I need to go to bed.
 
 Time for me to get some sleep, /v/. You were quite helpful, thank you. Seeya.
 
+<a id="chapter23b"></a>
 ## /b/ 28663290 Part **23**(b) June 2nd, 2007  ##
 
 Posted as Nurse-kun !!hPl7vWPKR+W
@@ -7375,6 +7383,7 @@ Still ongoing, no change from my last thread-time. We went on a picnic on wednes
 
 Something I've considered, doing a little 'undercover as loli' work, though I'm not sure how well I'd pull it off, and, well. I don't think I'd pass very well, chief. You don't know what it's like out on those streets, chief! You don't know what they'll do, who they'll cut, who they'll sell, just to get their hands on another fresh loli!! I ain't going out there unprotected!
 
+<a id="chapter23c"></a>
 ## /b/ 28671155 Part **23**(c) June 2nd, 2007  ##
 
 What's with /b/ and making my threads suddenly disappear as of late? Is there some new auto-deletion limit I'm unaware of or something?
@@ -7850,7 +7859,7 @@ She's no pro just yet.
 ### 28680820  ###
 
 >  :: _did anybody save the other threads?_
->  _yes. Ill upload rapidshares later..._ (you can find it here [[Story:DamagedGoods#Links --[Sarafan](User:Sarafan) 05:14, 3 June 2007 (BST)]] )
+>  _yes. Ill upload rapidshares later..._ (you can find it here Story:DamagedGoods#Links --[Sarafan](User:Sarafan) 05:14, 3 June 2007 (BST) )
 
 I feel somewhat bad.  
 I mean, this is hardly gold.  
@@ -7907,6 +7916,7 @@ Appears unlikely.
 Nevertheless, it continues.  
 Because I'm bored.
 
+<a id="chapter23d"></a>
 ## dis.vg 1180821777 Part 23 (d) June 2nd, 2007  ##
 
 threads in 4chan BBS tend to stick around for a while. drop by and leave your friend code, maybe you'll get a chance to play against amputan's [pokemans](/pokemans).
@@ -7920,7 +7930,7 @@ Why didn't Nurse-kun update anymore? Some say that something happened during the
 
 Gravely worried that he could have died or been V&, Anonymous attempted to find him anyway, and on the last text thread he made, they discussed to find out the truth. The results are saved in the sections below. Since 4chan text threads are never deleted, that thread spans 4 years of replies, so check it out if you're interested.
 
-[[Shii]] thinks he was most likely afraid of being stalked by /b/. It probably wouldn't look good on the adoption papers for him to be associated with weirdos from the Internet and pooper jokes. In terms of how notorious 4chan became in 2008, it was probably a good move...
+Shii thinks he was most likely afraid of being stalked by /b/. It probably wouldn't look good on the adoption papers for him to be associated with weirdos from the Internet and pooper jokes. In terms of how notorious 4chan became in 2008, it was probably a good move...
 
 <a id="chapter24"></a>
 ## Chapter 24 - Epilogue

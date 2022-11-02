@@ -12,6 +12,9 @@ As the events unfold, the magic of the story somehow enchanted the cold heart of
 
 It does more than just tell a riveting tale about one guy and a girl; it gives a window into what 4chan was, what this influential community became, and what the site truly meant to the users who lurked and posted at the time.
 
+<div style="page-break-after: always;"></div>
+
+
 # Table of contents
 1. [Chapter 1 - Byouin Otoko](#chapter1)
 2. [Chapter 2 - Covert Ops](#chapter2a)
@@ -50,6 +53,8 @@ It does more than just tell a riveting tale about one guy and a girl; it gives a
     4. [Part 4](#chapter23d)
     5. [Addendum: Finding Nurse-kun](#adtxt)
 24. [Chapter 24 - Epilogue](#chapter24)
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter1"></a>
 ## Part 1 (December 16th)  ##
@@ -638,6 +643,8 @@ I need to get ready for dinner, then hit the mall before heading in to work. Nee
 
 The rest of you fags can go fuck yourselves.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter2a"></a>
 # Part Two (December 17th)  ##
 *From this point on, most threads will follow the format of story first, and AMA right after.*
@@ -1159,6 +1166,8 @@ OP- i don't know if this would be possible, but you might consider organizing so
 
 OP here - Someone may want to archive this thread before it implodes.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter2b"></a>
 ## Thread 2B: 12/17/06(Sun) 17:40:47 No.17454864
 
@@ -1553,6 +1562,8 @@ But now that I look at the thread I think it's safe to say that not much more is
 
 http://rapidshare.com/files/7935439/17454864.rar.html
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter2c"></a>
 ## Thread 2C: (on /i/)
 
@@ -1666,6 +1677,8 @@ OP here. I honestly have no problem with a clothed version. If I had the photosh
 Fuck, this is why you don't drink and post, as lame and undoubtedly made-up as that sounds.
 
 Guess it's a good thing I didn't go for med school after all. Anyway, need to head in to the 'office' in time for the nurses' lunchtime gathering, to bounce my idea off them before I take it to the administration office.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter3"></a>
 ## Part 3 (December 18th)  ##
@@ -1823,6 +1836,8 @@ And yeah, seems it's winding down, but I suppose there isn't a lot to say anymor
 
 Um, that's the plan. I'm not sure if I should do anything tonight, though I'm considering checking to see if she's awake, and if so, telling her that she doesn't have to keep the bear a secret, etc, just to take that burden off her.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter4"></a>
 ## Part 4 (December 19th)
 
@@ -1938,6 +1953,8 @@ Uh, I'll pass, thank you. I mean, what are they going to do a story on at this p
 
 Well, was asked to keep /b/ updated, and I did that several hours ago. Answering questions and recieving helpful advice is nice, but being told to prove a negative isn't much fun, no matter what it regards.  
 I'll post tomorrow.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter5"></a>
 ## Part 5 (December 20th)
@@ -2138,6 +2155,8 @@ You're the artists. Draw her however you like. I've provided the description...i
 
 I'll try to, though it's starting to seem like daily updates aren't wanted. I'm not here to make /b/ unhappy, after all.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter6"></a>
 ## Part 6 (December 22nd) ##  
 
@@ -2249,6 +2268,8 @@ She didn't exactly make a full 'reset-button' recovery when the credits on that 
 
 OP here: Leaving to meet her social worker for the DS hunt. Wish me luck in finding it, since while I don't mind her using mine, if I don't find it tonight, she probably won't get hers back before christmas...and I wouldn't like that to happen.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter7"></a>
 ## Part 7: December 23rd, 2006 ##
 
@@ -2281,6 +2302,8 @@ She holds the DS steady with her myoelectric hand on her prosthetic arm, and pla
 
 Thanks again. I haven't been able to settle on a good book choice yet, I'll probably wind up buying something on christmas, or something...such is my habit of procrastination.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter7a"></a>
 ### The End? (troll attempt #1) ###
 
@@ -2298,6 +2321,8 @@ Thanks again. I haven't been able to settle on a good book choice yet, I'll prob
 
 This is of questionable authenticity, but would have been really
 fucking sad and epic if it was true. Since Nurse-kun says in Chapter 8 that he hasn't posted since Christmas morning, this is likely a troll as first post consisted of nothing but "Hey, /b/." (No.18232915), subsequent posts lacked Nurse-kun's writing style, and the time required to relinquish a ward of the state (in any state) would have made her case worker aware of ampu-tan's family's intentions well before Christmas. It is also possible that Nurse-kun was drunk while writing this post. This (getting drunk) would be the logical thing to do in such a situation.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter8"></a>
 ## Part 8: January 21st, 2007  ##
@@ -2474,6 +2499,8 @@ To answer this question rather late, she listens to a lot of different things; s
 
 Her rehab is progressing well, all in all. She's getting better with her legs all the time, and tried the standing-by-her-bed trick I mentioned her failing at nearly a month ago again while I was watching, just recently, and succeeded, shaky though she was...she was in a pretty good mood for the rest of the night after that.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter9"></a>
 ## Part 9: January 24th, 2007 ##
 
@@ -2518,6 +2545,8 @@ The fact that she's come to be comfortable with me to this extent, moreso than t
 Well, I need to get going now...sorry, like I said, it had to be a short one. Takes me at least 20 minutes on a good night to get from my place to my workplace, so, yeah. Have a good night, /b/, I'll see about updating earlier next time. Oh, and now that it's popped back into my head: To whoever posted on the wiki about going into a field in college related to prosthetics, you have my admiration. Good for you, and good luck. I'm not sure how I feel about having sort of inspired someone else like that, but...still, wow.
 
 See you, I'm out.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter10"></a>
 ## Part 10 (January 24th, 2007) ##
@@ -2626,6 +2655,8 @@ Can't win if I do, can't win if I don't. Since the mods don't give a shit about 
 I already got her an iPod for christmas, as I've mentioned before, and it's full of various bits of music she asked me to load onto it for her.
 
 I'm not sure Berserk would be looked upon as an age-appropriate gift for her. Hell, I might be charged with corrupting a minor if I gave it to her and got caught.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter11"></a>
 ## Part Eleven (January 28th)  ##
@@ -2738,6 +2769,8 @@ Mid-20s. I think that's close enough.
 Yes, I have, as I've mentioned, we discussed it at christmas, and a couple of times since. He's having lunch with a friend that works in family law this upcoming week, where he'll discuss the situation in general, and get some advice from a specialist to relay to me, hopefully...
 
 ...well, I'm not an ideal candidate, simply for the single-person reason. But as I've pointed out before, she's a 'special' case, and they're less likely to outright reject me than they might for a more 'viable' candidate, all things considered...well, I can only hope, y'know?
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter12"></a>
 ## Part Twelve (January 30th) ##
@@ -3066,6 +3099,8 @@ No offense intended, of course, and I'm aware there are plenty who'd say I'm doi
 
 Yeah, I know. I mean, I never anticipated it growing into this, so the whole 'watch what you say on...THE INTERNETS' voice wasn't speaking to me at the time. I mean, shit, I didn't even know there was a 4chan wiki before all this, let alone that it'd all wind up archived on one...
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter13a"></a>
 ## **Part Thirteen (February 13th)**  ##
 
@@ -3257,6 +3292,8 @@ Well, yes, I could happily go without inserting (or removing) another catheter f
 
 They're around here somewhere. As I've said numerous times, I'm not much of a photography person, so the roll of film is still around here in some nook or cranny. I keep forgetting about it. I'll try to do it relatively soon?
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter13b"></a>
 ## Part Thirteen B (February 13th)  ##
 
@@ -3407,6 +3444,8 @@ Wow. Um, on that note, I really need to get going for work. I'll sign back on to
 
 Yes, she had friends, no, they don't visit her anymore. I've been told she lashed out a fair bit and burned a lot of bridges post-accident when they showed up, and kids don't tend to like dealing with disfigurations, even if they're gifted little angels, even if parents don't like to admit it, or that they don't particularly like such people either. I guess. Not a shrink myself. Gotta go now. Night, /b/!
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter14"></a>
 ## Part Fourteen (February 14th) ##
 
@@ -3491,6 +3530,8 @@ Ok, ok, I'm already planning on the Waha printout...it's just additional 'winner
 > _NURSE-KUN. print out a pic of nana, cum on it, take pic and post it here. srsly_
 
 Um, maybe another time. It sounds like a great way to celebrate this day of love, but there's the whole lacking digital camera thing and suchlike.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter15"></a>
 ## Part 15 (February 23rd 2007)  ##
@@ -3890,6 +3931,8 @@ Which would be the main reason I've thought it might not be a good idea, should 
 
 I'm not too l33t, so my worry would be that I'd either a) mess up the proxy, flashing the world my sundry sundries, b) not do the proxy well enough, letting people tear it/them down, or c) wind up in federal pound-you-in-the-ass prison.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter16"></a>
 ## Part 16 (February 25th, 2007) ##
 
@@ -4132,6 +4175,8 @@ As for the posters, I'm not sure about that either, but the only thing on her wa
 
 Hmm, not a bad suggestion, nor was the french horn (for the future, perhaps)...I'll have to take it under consideration.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter17"></a>
 ## Part 17 (March 6th, 2007) ##
 
@@ -4244,6 +4289,8 @@ LOL, another fake comes in to back up the fake. I guess the Spirit of Nurse-kun 
 
 You aren't the real Nurse-kun, I am! *pushes 21727722*
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter18"></a>
 ## Part 18 (March 26th, 2007) ##
 
@@ -4319,6 +4366,8 @@ Well she is recovering at a nice rate, she's not recovering so fast that she'll 
 >  _re: "I think you mentioned in earlier posts that the social worker was pretty reluctant about the whole idea. Does she seems more relax now? Do you think you'll have more of a chance of getting some alone time with amputee-chan outside of the home?"_
 
 She seemed much more relaxed on this trip, and even had a bit of fun I would say. I think that if things continue to go well, I will have that chance.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter19"></a>
 ## Part 19 (April 3rd, 2007) ##
@@ -4964,6 +5013,8 @@ Mm, I need to get going in the next few minutes. Any last words for the night, /
 And on that note, off I go. Sweet dreams, /b/, and I'll try and see if I can help her have the same.
 Night.
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter20"></a>
 ## Part 20 (April 10th, 2007)  ##
 
@@ -5234,6 +5285,7 @@ I do have to admire his efficiency, if nothing else. He's really got it down to 
 
 Or, you know, a script or something, I guess. Ah, well.
 
+<div style="page-break-after: always;"></div>
 
 <a id="chapter21"></a>
 ## Part 21 (April 26th, 2007)  ##
@@ -5854,6 +5906,7 @@ I'll keep that in mind. It'd probably freak me out more if it happened there tha
 
 I need to get going, /b/. Off to work another shift, another night, till comes the dawn. See you around.
 
+<div style="page-break-after: always;"></div>
 
 <a id="chapter22a"></a>
 # Chapter 22 Part 1 #
@@ -6673,6 +6726,8 @@ And that was that...she told me all of this one night last week when I stupidly 
 Anyway, here are some zombie boobies.
 (hot pic, end of first thread)
 
+<div style="page-break-after: always;"></div>
+
 <a id="chapter22b"></a>
 # Chapter 22 Part 2  #
 
@@ -6893,6 +6948,7 @@ So we settled in for some of the more pleasent times in the recouperative proces
 
 And so the trip 'home' was uneventful, because I'm kind of tired and running out of writing energy, and not much happened anyway. I wheeled her back inside, knowing the policies and regulations as I do, back to her room, and greeting fellow nurses on the way. Once there, I told her that I hoped I'd done an okay job taking care of her, even though I knew I wasn't that good at it. She hesitated a moment, then leaned forward and hugged me, and told me that she was happy I cared enough to try. Taking that comment in what I hoped the spirit it was intended for, I smiled a bit and returned the hug, carefully, then stood up, patting her shoulder lightly. And told her I'd see her soon...since I'd be back at work in roughly three hours or so. She almost smiled a bit at that, and we waved goodbye to each other as I stepped out of her room...and back into the fading light to go home and straighten up my apartment before going 'Home again.' for another night.
 
+<div style="page-break-after: always;"></div>
 
 <a id="chapter23"></a>
 ## Chapter 23
@@ -7047,6 +7103,8 @@ Not right now, no. I need to go to bed.
 ### 3753468  ###
 
 Time for me to get some sleep, /v/. You were quite helpful, thank you. Seeya.
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter23b"></a>
 ## /b/ 28663290 Part **23**(b) June 2nd, 2007  ##
@@ -7382,6 +7440,8 @@ Still ongoing, no change from my last thread-time. We went on a picnic on wednes
 >  _also, you could try out the friend codes playing instead of her for a few sessions to check them out before deciding whether or not the people behind the codes are decent or not._
 
 Something I've considered, doing a little 'undercover as loli' work, though I'm not sure how well I'd pull it off, and, well. I don't think I'd pass very well, chief. You don't know what it's like out on those streets, chief! You don't know what they'll do, who they'll cut, who they'll sell, just to get their hands on another fresh loli!! I ain't going out there unprotected!
+
+<div style="page-break-after: always;"></div>
 
 <a id="chapter23c"></a>
 ## /b/ 28671155 Part **23**(c) June 2nd, 2007  ##
@@ -7931,6 +7991,9 @@ Why didn't Nurse-kun update anymore? Some say that something happened during the
 Gravely worried that he could have died or been V&, Anonymous attempted to find him anyway, and on the last text thread he made, they discussed to find out the truth. The results are saved in the sections below. Since 4chan text threads are never deleted, that thread spans 4 years of replies, so check it out if you're interested.
 
 Shii thinks he was most likely afraid of being stalked by /b/. It probably wouldn't look good on the adoption papers for him to be associated with weirdos from the Internet and pooper jokes. In terms of how notorious 4chan became in 2008, it was probably a good move...
+
+<div style="page-break-after: always;"></div>
+
 
 <a id="chapter24"></a>
 ## Chapter 24 - Epilogue

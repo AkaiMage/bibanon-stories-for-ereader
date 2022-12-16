@@ -3883,7 +3883,7 @@ I just hope it keeps...and that I can be helpful in providing he;lp for it to do
 
 ### 21074740 ###
 
-> _JUst kind of throwing ideas out there, so yeah, never mind if they're complety stupid. `>_>`_  
+> _JUst kind of throwing ideas out there, so yeah, never mind if they're complety stupid. >\_>_  
 > _Perhaps, to he;lp with the frustration, you could get her some metal? I mean, probably not really heavy death or black or anything like that. Probably power or progressive would be good. Power and progressive are usually easier to listen to, and easier to get into. Well, not so much progressive, but mainly due to song length and complexity. However, you said she used to play at practically prodigy level, so theres probably a good chance she'd appreciate the complexity. But yeah, Dream Theater, Queensrÿche, Bind Guardian. All great bands._
 
 Uh, I'll consider it? I've never been much of a metal person, myself...
@@ -4479,7 +4479,7 @@ Maybe not. But I think I'd wind up in worse shape if I let her sit in that bed i
 
 > _Cool. Let me start by saying congratulations on taking the really big leap and trying for adoption. With everything else in your life at the moment, that's quite a step to take. This story made me tear up a bit ;\_;_  
 > _Now, if it's not too irritating, can I ask a few housekeeping type questions. There's been some confusion about what is really by you and what isn't, and I'm sure that will go away gradually now that tripcodes are back. Frankly, I'm assuming you're the real deal, since everything about you sounds like it, and we'll go from there._  
-> _So the thread a month ago was a real outing and you did go to the zoo? There was a nurse-kun post a few days ago with a different tripcode that contradicted that, but it seemed very flakey. (Right, like a 7 year old would really ask to go see 300... >_>) Also, to clear up some confusion, are you the one who signed up for the Nurse-kun account on the wiki?_  
+> _So the thread a month ago was a real outing and you did go to the zoo? There was a nurse-kun post a few days ago with a different tripcode that contradicted that, but it seemed very flakey. (Right, like a 7 year old would really ask to go see 300... >\_>) Also, to clear up some confusion, are you the one who signed up for the Nurse-kun account on the wiki?_  
 > _I realize these questions seem a little dumb in the grand scheme of things, but I think the way to look at it is that there are enough people who honestly care about this story and how it turns out that they want to see how it really ends without being led on or bel-aired._
 
 Now, the biggest post that got eaten...whooo.
@@ -6172,17 +6172,19 @@ What would you define as 'bigger things', buddy?
 ### 25683915  ###
 
 > _Sup Nurse-kun. Tonight I went for a picnic by myself to see the flooded river before it finally goes down. There's nothing quite like eating tasty tasty food like egg salad sandwiches and Jamaican lemonade, while sitting on the space where the sidewalk disappears into the river._  
-> _'Then I got home to the dorm and there was a fire alarm so I'm still awake >_<_
-> _'Nothing actually to add to this thread other than "You rock!" ^_^ I'm a cyberpunk writer, so stories about people with missing pieces fascinate me._ Maybe you should team up with `>>25683628`
+> _'Then I got home to the dorm and there was a fire alarm so I'm still awake >\_<_
+> _'Nothing actually to add to this thread other than "You rock!" ^\_^ I'm a cyberpunk writer, so stories about people with missing pieces fascinate me._
 
-and write the next great cyberpunk novel together, he can design the shiny bits, you can provide the washed out dystopian urban blight of the setting. Might I suggest a hard-bitten but still human due to the influence of a stranger that extended a hand young blonde half-Japanese woman with a few cybernetic limbs and an eye-laser as the protagonist? The Japanese are still cool in cyberpunk, despite the fall of their economic zeitgeist, right?
+Maybe you should team up with `>>25683628` and write the next great cyberpunk novel together, he can design the shiny bits, you can provide the washed out dystopian urban blight of the setting. Might I suggest a hard-bitten but still human due to the influence of a stranger that extended a hand young blonde half-Japanese woman with a few cybernetic limbs and an eye-laser as the protagonist? The Japanese are still cool in cyberpunk, despite the fall of their economic zeitgeist, right?
 
 ## 25684391  ##
 
 
 ### 25684094  ###
 
-I don't know, like a doctor, paramedic, specialist or something. What's the pay like for nursing anyway? I've been thinking of getting into the health field, pharmacy specifically. After reading Damaged Goods though it kinda made me want to get into nursing. What do you think about pharmacy?_ Well, nursing is certainly a calling, rather than something you get into to make a ton of money and retire to a big house somewhere warm. Since the changeover from apprenticeship to degrees, nursing isn't as robust a profession as it used to be, particularly since once you've been in school for four years or so, you tend to find yourself asking 'Do I REALLY want to do this?' when you start doing the real thing. And it isn't a glamorous job, even if they let you wear the white uniform and hat. Pharmacy is much more stable and less traumatic, a good solid career choice, if the work you'd be doing is the sort of thing you don't mind, or enjoy, doing. I have an aunt by marriage that's a pharmacist, she seems to enjoy it. I'd certainly do some research before I went into nursing in earnest, though, particularly if you're just inspired by my drivel...it's not much different than joining up to carry an M-16 because that movie was SO COOL, since the reality is a bit harsher. Still, we can certainly always use more brothers and sisters for the cause, so think it over some more. And no, I haven't particularly thought about going into another career, though I don't think I'll be working in a home for the rest of it...this is, was, intended to be a sort of...purgatory, as I thought about some issues of my own.
+> _I don't know, like a doctor, paramedic, specialist or something. What's the pay like for nursing anyway? I've been thinking of getting into the health field, pharmacy specifically. After reading Damaged Goods though it kinda made me want to get into nursing. What do you think about pharmacy?_
+
+Well, nursing is certainly a calling, rather than something you get into to make a ton of money and retire to a big house somewhere warm. Since the changeover from apprenticeship to degrees, nursing isn't as robust a profession as it used to be, particularly since once you've been in school for four years or so, you tend to find yourself asking 'Do I REALLY want to do this?' when you start doing the real thing. And it isn't a glamorous job, even if they let you wear the white uniform and hat. Pharmacy is much more stable and less traumatic, a good solid career choice, if the work you'd be doing is the sort of thing you don't mind, or enjoy, doing. I have an aunt by marriage that's a pharmacist, she seems to enjoy it. I'd certainly do some research before I went into nursing in earnest, though, particularly if you're just inspired by my drivel...it's not much different than joining up to carry an M-16 because that movie was SO COOL, since the reality is a bit harsher. Still, we can certainly always use more brothers and sisters for the cause, so think it over some more. And no, I haven't particularly thought about going into another career, though I don't think I'll be working in a home for the rest of it...this is, was, intended to be a sort of...purgatory, as I thought about some issues of my own.
 
 ## 25684514  ##
 

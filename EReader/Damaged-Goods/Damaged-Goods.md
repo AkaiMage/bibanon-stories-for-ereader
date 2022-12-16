@@ -1175,7 +1175,7 @@ OP here - Someone may want to archive this thread before it implodes.
 
 > In this thread, it is finally decided that the OP will hereafter be called Nurse-Kun. But not much else happens.
 
-### 17454864 (Nurse-Kun) ###  
+### 17454864 (Nurse-Kun)
 
 Anonynurse here, since some people still seemed to have questions as of the death of today's update thread. I'll keep an eye on this one, if anyone has anything to say or ask.
 
@@ -1193,7 +1193,7 @@ I don't have anything to ask, but I just want to say that your story makes me fe
 
 Good work, Anonynurse, good work.
 
-### 17455471 (Nurse-Kun) ###  
+### 17455471 (Nurse-Kun)
 
 > [Why "anonynurse"? Wasn't it "Nurse Otoko"?]
 
@@ -1222,7 +1222,7 @@ Generally, any ward of the state that's under 18 is available for adoption...not
 
 If she's up for adoption, I sure would like to try. You and your damned story are too heartwarming. In the words of /b/, "I'm detecting large amounts of win in this thread."
 
-### 17455652 (OP) ###  
+### 17455652 (Nurse-Kun)
 
 I probably wouldn't make a serious inquiry/request until at least the new year, if only because doing it without at least having her half-trust/like me would be both pretty dumb and pretty self-defeating.
 
@@ -1239,7 +1239,7 @@ Yeah, that's what I figured. What are you going to try to accomplish with her in
 
 reasonable doubt that you won't rape and murder the child
 
-### 17455995 (OP) ###  
+### 17455995 (Nurse-Kun)
 
 I'll do what I can. I mean, I really would like to gain her trust, because she doesn't trust anyone right now, and that's probably one of the bigger hindrances to her getting any better. And I'll treat her like I'd treat any other kid in her situation that I was willing to risk my life over...as best I can. It's the only way things will go at all well for anyone involved.
 
@@ -1282,7 +1282,7 @@ I have no doubt that you'll be able to provide for the girl, but at the same tim
 To the OP, don't you think that the responsible thing to do - as you have somewhat lustful feelings for this girl - is to avoid becoming her guardian?  
 Seems to me to be a really bad idea for both of you.
 
-### 17456259  ###  
+### 17456259 (Nurse-Kun)
 
 Believe me, I am VERY aware of this.  
 ...which is why I'm still in 'hard thinking' mode, not 'painting the spare room pink' mode.
@@ -1322,22 +1322,22 @@ Revealing personal info on /b/ is like dropping your pants and bending over in a
 
 Authorities might not even take it very seriously, but it could still hurt his chances.
 
-### 17456532 (OP) ###  
+### 17456532 (OP) (Nurse-Kun)
 
 As I've already stated since the first post, I'm not working in a hospital.
 
-### 17457033 (OP) ###  
+### 17457033 (OP) (Nurse-Kun)
 
 `>>17456707`
 > i'd suggest trying to get other workers together on doing things for her. you could be the clear ringleader, but it would be far less creepy and would give everyone context to your request for adoption.
 
 As I mentioned once before, I'm already planning ways to accomplish this. But friday nights, good luck finding anyone still around at 10 pm, and on the weekends, during the day? I'll schedule a meeting come monday, and present my proposal. We are allowed to make recommendations for the consideration of the treatment of patients; like I said, the head administrator isn't a COMPLETE bitch.
 
-> [The next section is spam and firey argument about whether he is a pedo...]
+----
+> [The next section is a spammy and firey argument about whether he is a pedo...]
+----
 
-### Anons attempt to judge Nurse-kun
-
-#### 17462640
+### 17462640
 
 `>>17462332`
 > [talking about the first post]
@@ -1354,7 +1354,7 @@ Anon: I see this cute, strong, and unfortunate little girl. I admire her greatly
 /b/ filter:  
 Anon: STICK IT IN LOLI POOPER FOR WIN
 
-#### 17456725
+### 17456725
 
 I'm no longer worried about the OP raping her.
 
@@ -1362,14 +1362,14 @@ He shows a degree of judgement too far beyond that of a pedophile. He shows that
 
 If any of you still doubt this, just keep in mind that this is the kind of man who would regret doing this for the rest of his life.
 
-#### 17457681
+### 17457681
 
 `>>17457560`
 > For the record, I think it's a terrible idea to even consider adopting someone you have lustful feelings for at any level. Caring for a girl in this situation full-time is hardly going to be easy and if the deicision to adopt is based on clouded judgement there's real potential for disaster.
 
 As a father and a paedophile I can happily inform you that your opinion is null and void. Just because you want to bone a chick who is in your care doesn't mean you can't take good care of her.
 
-#### 17457798
+### 17457798
 
 `>>17457681`
 
@@ -1377,26 +1377,26 @@ Since when did one case = the norm? Just because you haven't fucked up your rela
 
 Consider also that a single-parent adopting a crippled girl is a considerably different situation to a paedophile assumedly in a relationship caring for his daughter.
 
-#### 17457842
+### 17457842
 
 `>>17457798`
 
 So no one should ever have children or adopt or in fact do anything because they might fuck it up.
 
-#### 17457892
+### 17457892
 
 `>>17457681`
 
 it always makes me shudder to hear of /b/tards breeding. but i suppose it can't be helped
 
-#### 17456897
+### 17456897
 `>>17456793`
 
 OP is a fucking nigger pedophile who should kill himself. All the faggots that support him should die too.
 
 P.S. This entire thread is fake. But it sure makes me mad.
 
-#### 17456827 + 17457930
+### 17456827 + 17457930
 
 `>>17456725`
 
@@ -1419,15 +1419,15 @@ I think it's going to be pretty important for the people here to research the di
 
 Remember if this story is true, it is being viewed through the OP's eyes. Imagine how much mental masturbation may have happend in his head and has perceived everything happy happy
 
-#### 17457215
+### 17457215
 
 `>>17457069`
 
 Exactly. Everyone here has been jumping to conclusions: Either the OP is the lowest form of scum on Earth, a terrible, monstrous pedophile, or he's a gleaming golden god, upholding justice and truth in a messed up world.
 
-I would expect /b/tards to be much more sceptical that this.
+I would expect /b/tards to be much more [skeptical than] this.
 
-#### 17457426
+### 17457426
 
 The world isn't black or white, it's all shades of grey. There's no real saints out there, but trying to crucify the guy because of some /b/ style comments is just absurd.
 
@@ -1435,7 +1435,7 @@ I'm a fairly normal guy, but I also browse /b/ and I'll type things that I'd nev
 
 I'm not saying he's the Second Coming, but these assholes proclaiming he should instantly be sodomized in a maximum security prison are a fucking joke.
 
-#### 17457414 (OP) ###  
+### 17457414 (Nurse-Kun)
 
 `>>17457215`
 
@@ -1459,7 +1459,7 @@ You seem to not want to do anything to hurt her, but if you educate her, and she
 
 Many people here seem to think you are leaning toward one of two extremes: completely avoiding sex or outright coldheartedly raping her to death.
 
-### 17457910 (OP) ###  
+### 17457910 (Nurse-Kun)
 
 I don't have a long-term master plan in place, despite what some may think. I'm basically trying to figure out what my heart, (as faggoty and retarded as that sounds), is telling me I should do.
 
@@ -1483,9 +1483,9 @@ If the time comes and she still doesn't have anyone who wants to take her in, th
 
 This isn't some sort of quick fix for your conscience and your natural protective feelings. This will be a lifetime commitment.
 
-You will have to devote the rest of your life to her health and well being. You will have to be able to protect her form all the people out there that would want to take advantage of her and try to hurt her, just because she is weak.
+You will have to devote the rest of your life to her health and well-being. You will have to be able to protect her [from] all the people out there that would want to take advantage of her and try to hurt her, just because she is weak.
 
-At the same time, you will have to give her enough leeway to grow and develop independance, so she will be able to function in society without you having to be there at all times to serve as a buffer from reality.
+At the same time, you will have to give her enough leeway to grow and develop [independence], so she will be able to function in society without you having to be there at all times to serve as a buffer from reality.
 
 This will take an epic amount of patience, compassion, understanding, and a good sense of humor.
 
@@ -1499,7 +1499,7 @@ Your story actually made me think about what I'm doing to help people around me 
 
 This is true. Right now, she just thinks you are the nice nurse. It is going to take a long time for her to ever WANT to be adopted by you.
 
-### 17462904 (OP) ###  
+### 17462904 (Nurse-Kun)
 
 `>>17462224`
 > OP, I think you should find her a good home, but not with you. No offense, you seem very nice, but how can you trust yourself not to raep your adopted daughter?
@@ -1545,7 +1545,7 @@ Anyways, I live in Denmark, being a GMT +1 country it is currently 01:19 AM here
 
 So, goodnight anonymous!
 
-#### 17458825 (OP)
+#### 17458825 (Nurse-Kun)
 
 OP here, how do i shot web? <spiderman pic here>
 
@@ -1569,7 +1569,7 @@ http://rapidshare.com/files/7935439/17454864.rar.html
 <a id="chapter2c"></a>
 ## Thread 2C: (on /i/)
 
-_Note: The is a side post from the /i/ board in a thread for fanart of the nameless girl. Some posts from the original have been moved here for consistency._
+_Note: This is a side post from the /i/ board in a thread for fanart of the nameless girl. Some posts from the original have been moved here for consistency._
 
 ### 17456001
 
@@ -1984,7 +1984,7 @@ It was several minutes before she started to calm down again, finally settling i
 ### 17606781
 
 I helped her lay down again, drawing her sheets and blanket up over her again, fluffing her pillows...finding the minibear wedged into the corner at the wall, and setting it at her side. I asked her if her stomach was all right, and she said it hurt...when I asked, she said that it'd only hurt since she woke up...that it had happened when she felt...bad...'since she was little'. I asked if there was anything I could do to help, that revelation running through my mind, and she looked down, a hint of a conflicted look on her face...and after she remained silent a bit longer, I took a bit of a leap, and asked...if she'd like me to stay here with her for a while.   
-She bit her lip at that a little...then nodded, hesitantly...and when I reached for where she held onto my shirt with my own right hand, gently, she let go of them, and grabbed it, instead. I did my best to offer her a comforting smile, and said that she could go to sleep, then...I'd stay, I wouldn't leave her alone. My legs were getting a bit sore at that point from kneeling on thinly carpeted floor, but I did my best to ignore them, focusing on the more important matter at the time.
+She bit her lip at that a little...then nodded, hesitantly...and when I reached for where she held onto my shirt with my own right hand, gently, she let go of them, and grabbed it, instead. I did my best to offer her a comforting smile, and said that [if] she could go to sleep, then...I'd stay, I wouldn't leave her alone. My legs were getting a bit sore at that point from kneeling on thinly carpeted floor, but I did my best to ignore them, focusing on the more important matter at the time.
 
 ### 17606804
 
@@ -2001,6 +2001,7 @@ I beg your pardon, sir. Neither of us are teenagers.
 ### 17607352
 
 >  _i cant tell if your talking about a loli or a grandma_
+
 What should I do, toss in my pizza metaphors? Flat chest euphemisms? Toss me a bone here.
 
 ### 17607454
@@ -2039,7 +2040,7 @@ Unnessecery variables make for unnessecery hassles, you know?
 
 >  _Anonynurse, will you see her on Christmas? Because I am positive that you seeing her on that date would do loads to better her condition._
 
-I'll probably be working on christmas, yeah...likely double-shifting, due to my martial/family status.
+I'll probably be working on christmas, yeah...likely double-shifting, due to my [marital]/family status.
 
 ### 17608521
 
@@ -2226,7 +2227,9 @@ She uses the myoelectric hand on her artificial right arm to hold the DS, and pl
 ### 17702148
 
 > _Nurse-kun, you mentioned that the psychiatrist you talked to said that it would be good if you made it clear to amputee-chan that you are giving her special treatment; that you do not really act as "close" to the other patients. Since you sat down to play DS with her, she is probably aware of it, but have you told her this yourself yet?_  
+
 Yes, more or less.  
+
 > _umm, what exactly is that supposed to mean?_  
 > _Such a vague answer must be bad..._
 
@@ -2573,7 +2576,7 @@ I got called away just afterward by a patient that'd caught the flu after a visi
 
 ### 19559403 ###
 
-> _is this a Nurse-kun thread? ;_;_
+> _is this a Nurse-kun thread? ;\_;_
 
 Well, I guess so, as I'm 'Nurse-kun', and I started a thread? I've been doing that again, lately.
 
@@ -2754,6 +2757,7 @@ Ha, I'll come right out and admit that it was the inspiration for my origami pre
 
 > _re: "What's your general work schedule (Days, Hours, etc...)? How often do you see her, and for how long?_
 > _Also, when not engaged in whatever activity (EBA, Origami, etc...) what do you two do? What do you converse about?"_
+
 I generally work six days a week, the 11pm-7am night shift. I have sunday nights off to catch up on sleep and do whatever I like to do, though there's rarely all that much to do on sunday nights, out on the town. She's almost always still awake when I come on duty these days, as she's admitted that she stays up to see me, and because she likes having some time to herself where she isn't surrounded by the moaning almost-dead and such (not her words, exactly). As I've mentioned before, I'm considering talking to her social worker and my bosses about volunteering some of my free time during the day some days to simply spending some time with her outside the nursing relationship, sort of like a 'big brothers/big sisters' relationship for single-parent kids. Still working up the nerve for that proposal.
 
 I generally let her talk about her day, vent about things that've bothered her, talk about the people around her and so on and so forth...acting as a sounding board, mostly, someone to listen to her without writing it up in her file and such, you know? She occasionally asks me about similar things, everyday events, stuff I do, what I think about certain things, etc...it's nice, really, though she is still just a kid, so they aren't the deepest conversations I could have, but they're good ones, and I really don't mind any of them in the least. I'm just happy she's opened up enough to make it a possibility in the first place.
@@ -2827,6 +2831,7 @@ As for the DS, she's still just playing stylus-control-based games...she uses he
 ### 19819146 ###
 
 > _Well, I must admit, that this guy has a lot of memories to back up his hate. Along with altzheimer, such things surface and accumulate to abnormal levels, so he snaps and propably WILL snap again. Please, keep her out of his reach for a while. ALso - please do talk to her about the incident and hear how she saw it & comment your way of seing it. It'll he;lp her get the tension out -> less tenstion => less nightmares. :3"_
+
 Well yeah, I can understand his inclinations towards anti-japanese sentiment, as it was pretty universal among people his age during wartime back then...and pretty universally accepted as 'proper', too. So I'm cutting him more slack than I would, say, a neo-nazi, or a KKK member or something (lol, /b/, nigras, shoop da whoop, etc). Still, she's a *seven year old child*. Who isn't even fully Japanese, not that that should really matter at all. Moderate Dementia or no, I can't just write it off entirely. Though I'm not going to be poisoning or roughing him up, either, because a) that's the opposite of my job, and why I got into this job in the first place, and b) he wouldn't even understand why it was happening in the first place, so it'd be pointless. I've been trying not to think about it too much, since it pisses me off to do so, good feelings about her kicking ass aside.
 
 ### 19819203 ###
@@ -2840,14 +2845,15 @@ Mm, I've thought about it...but I'm not a very craft-oriented person. I mean, I'
 
 > _Have you considered buying her one of those gba>SD card carts and loading up some movies for her? You could discuss the movies._
 > _Protip: Avoid amputation films like Kill Bill._
+
 Hm, I never really checked them out before, as I haven't ever really needed to use my DS for such things. What's their capabilities and general costs?
 
 (Also, thanks for the protip, saved me from an embarassing presentation of Blade!)
 
 ### 19819665 ###
 
-> _I tought similar - her reaction is somewhat in the pstd area, stressor of the sittuation still percieved as not strong enough to tackle the typical behaviour. Actually, the nightmares might be a way for her to regain and reduce the more balanced scale - as cruel as it sounds the increased frequency might be a healing sign. Poor little girl. ;_;_  
-> _As for DS, that's fabulous that she's finally interacting with an object through the prostetic! She's making such progress... ;_;_
+> _I tought similar - her reaction is somewhat in the pstd area, stressor of the sittuation still percieved as not strong enough to tackle the typical behaviour. Actually, the nightmares might be a way for her to regain and reduce the more balanced scale - as cruel as it sounds the increased frequency might be a healing sign. Poor little girl. ;\_;_  
+> _As for DS, that's fabulous that she's finally interacting with an object through the prostetic! She's making such progress... ;\_;_
 
 Well, I'm not a PTSD specialist by any means, though I've been reading up on it and discussing it with our resident shrink since mid-december or so, now. I can only do my clumsy best to try and avoid doing unintentionally hurtful things, try to do helpful ones, and hope for the best. And yeah, the first night, when I offered the use of my DS, she was really frustrated by her inability to hold it steady with her prosthetic as much as her still clumsiness with her left hand on the stylus...she's gotten a lot better with both since then, and even her hand-rehab nurse sent along a note saying it was a good idea, as she'd told her about it...it's nice to have a good idea every now and then.
 
@@ -2920,7 +2926,9 @@ Hm, no, I don't...the home isn't wi-fi equipped, anyway, so she wouldn't be able
 ### 19823278 ###
 
 > **In response to attached image**
+
 Oh god, the awesome. New desktop found. (NK here)
+
 **EDITORIAL NOTE:** No way to know who posted this
 
 ### 19825500 ###
@@ -3364,10 +3372,10 @@ Personally, I'd say good for you, and welcome to the fraternity (in a non-gender
 ### 20498678  ###
 
 > _I've been trying to catch a Nurse-kun thread for weeks!_  
-> _Also, that GitS shit is awesome. I just finished watching it. That "I do, I do" song had me crying. Manly tears. ;_;_  
-> _But I'd like to chime in on the pedo question. I'm inclined to think it was a sort of forced /b/ thing though.
-
-The first thing any /b/tard would think when they see a loli would be "rape plz ing hawt" from being on /b/ so much and never really dealing with kids, but when you realise the actual situation it become different._ _Eh, I can't explain that well._
+> _Also, that GitS shit is awesome. I just finished watching it. That "I do, I do" song had me crying. Manly tears. ;\_;_  
+> _But I'd like to chime in on the pedo question. I'm inclined to think it was a sort of forced /b/ thing though._
+> _The first thing any /b/tard would think when they see a loli would be "rape plz ing hawt" from being on /b/ so much and never really dealing with kids, but when you realise the actual situation it become different._ 
+> _Eh, I can't explain that well._
 
 I get what you're saying. I admit that I probably had a few jokes and such that ran through my head that the 'normal' person wouldn't, just as a /b/flex. Still, I like to think it was mostly the /b/, and less the me.
 
@@ -3385,7 +3393,7 @@ I get what you're saying. I admit that I probably had a few jokes and such that 
 
 Well, I'm glad someone did!
 
-Ah, yes, that may not be the best idea, considering the amount of chemicals scattered throughout the home. But, um, booby-traps, you say? I'm entirely sure I want to come in one night and hear about the morning shift nurse coming in to check on her and getting hoisted up to the ceiling by her ankle via improvised IV tubes-rope or something.
+Ah, yes, that may not be the best idea, considering the amount of chemicals scattered throughout the home. But, um, booby-traps, you say? I'm [not] entirely sure I want to come in one night and hear about the morning shift nurse coming in to check on her and getting hoisted up to the ceiling by her ankle via improvised IV tubes-rope or something.
 
 ### 20499834  ###
 
@@ -3553,7 +3561,7 @@ I've been playing email tag with her social worker since then, setting up ground
 
 ### 21055859 ###
 
-I finally spoke to her about it wednesday night, since, as I've mentioned before, I didn't want to raise any hopes or such, in case it didn't happen. We played a Vs. games of EBA first (she kicked my ass in the majority, as usual), as I tried to work up the nerve to start the discussion, and after a round of 'You're the Inspiration' (she still doesn't like the main stage/story, but playing it on Vs. is ok), finally managed to do so, practically blurting out the details in a quick stream of information.
+I finally spoke to her about it wednesday night, since, as I've mentioned before, I didn't want to raise any hopes or such, in case it didn't happen. We played a [few] Vs. games of EBA first (she kicked my ass in the majority, as usual), as I tried to work up the nerve to start the discussion, and after a round of 'You're the Inspiration' (she still doesn't like the main stage/story, but playing it on Vs. is ok), finally managed to do so, practically blurting out the details in a quick stream of information.
 
 She seemed a bit surprised, unsurprisingly; her first words were 'You'd want to do that...with me?'. Which, I now realize, sounds bad being typed out on /b/, but she was referring to spending time with her outside of what I'm paid to do. Which, while I've sort of been doing that already, I have still been on the clock for, so technically, not quite.
 
@@ -3643,10 +3651,10 @@ Yeah, little angel. I mean, not like Stormfront or KKK jokes, but the sort of th
 
 ### 21060921 ###
 
-> _What the Fuck is Waha?  
-> _Waha is a chibi version of Yamato Suzuran, created by 2chan.  
-> _What the Fuck is Suzuran?  
-> _She's the 13-year-old loli from the H-Game Suigetsu Mayoi Gokoro, in which the protagonist (you) fuck her senseless.
+> _What the Fuck is Waha?_  
+> _Waha is a chibi version of Yamato Suzuran, created by 2chan._  
+> _What the Fuck is Suzuran?_  
+> _She's the 13-year-old loli from the H-Game Suigetsu Mayoi Gokoro, in which the protagonist (you) fuck her senseless._
 
 Yes, yes, I know that. I can always claim ignorance if she finds out, which hopefully won't happen. I mean, how would she?
 
@@ -4469,7 +4477,7 @@ Maybe not. But I think I'd wind up in worse shape if I let her sit in that bed i
 
 ### 23591857 ###
 
-> _Cool. Let me start by saying congratulations on taking the really big leap and trying for adoption. With everything else in your life at the moment, that's quite a step to take. This story made me tear up a bit ;_;_  
+> _Cool. Let me start by saying congratulations on taking the really big leap and trying for adoption. With everything else in your life at the moment, that's quite a step to take. This story made me tear up a bit ;\_;_  
 > _Now, if it's not too irritating, can I ask a few housekeeping type questions. There's been some confusion about what is really by you and what isn't, and I'm sure that will go away gradually now that tripcodes are back. Frankly, I'm assuming you're the real deal, since everything about you sounds like it, and we'll go from there._  
 > _So the thread a month ago was a real outing and you did go to the zoo? There was a nurse-kun post a few days ago with a different tripcode that contradicted that, but it seemed very flakey. (Right, like a 7 year old would really ask to go see 300... >_>) Also, to clear up some confusion, are you the one who signed up for the Nurse-kun account on the wiki?_  
 > _I realize these questions seem a little dumb in the grand scheme of things, but I think the way to look at it is that there are enough people who honestly care about this story and how it turns out that they want to see how it really ends without being led on or bel-aired._
@@ -4706,7 +4714,7 @@ Well, I'd certainly encourage her if she felt like singing, but she isn't my per
 
 > _from the chapter 17 archive:_
 > > _Friend of Nurse-kun here. Actually, Nurse-kun number one really is the genuine article, and 21727722 on down is full of shit. He's been having some problems with his family recently, and isn't in good shape about it. I'm not really sure what's up. I haven't asked, but I don't think it has any relation to his job or Amputee-tan (who, by the way, is not as cute as he usually describes)._  
-> _nurse-kun says in op that this guy is real. so I guess there ARE pics, but we don't get them ;_;_
+> _nurse-kun says in op that this guy is real. so I guess there ARE pics, but we don't get them ;\_;_
 
 Sorry, guys. Just the way the cookie crumbles x several thousand+ people vs a few close friends, you know?
 
@@ -4804,7 +4812,7 @@ There is indeed a dilemma there, to be certain. Positively Shakespearian, it is.
 
 > _I remember being here during your first thread, and reading and watching, and suggesting things, and hoping for you._  
 > _This all endlessly reminds me of Densha Otoko, someone's probably said this before because every repost is repost repost, but this could be 4chan's D-O._  
-> _;_; Saving this._
+> _;\_; Saving this._
 
 Welcome back? Thanks for all your support! (film critics rave about romancing ampu-tan)
 
@@ -5767,7 +5775,7 @@ I know that. And that's fine, since I'd think it'd be pretty damn weird/creepy t
 
 ### 25572182  ###
 
-> _So I can go to bed now? I have to get up in 3 hours ;_;_  
+> _So I can go to bed now? I have to get up in 3 hours ;\_;_  
 > _See you next time awesome nursekun!_
 
 Goodnight and good luck, anonymous.
@@ -7083,7 +7091,7 @@ So long as it doesn't have the capability to spell out complex original messages
 
 ### 3753358  ###
 
->  _Also, hi Nurse-kun ;_;_
+>  _Also, hi Nurse-kun ;\_;_
 
 Hi. Cheer up, you guys, it's a beautiful day where I am...and dwelling on the dark won't accomplish anything. I know that, despite my frequent jokes (well, partial jokes) about the toxicity of 4chan, there are probably at least a few people on here that actually care about her. Which is why I'm asking this here, and considering the possibility of trying to find some of those people for friend codes, at all.
 
@@ -7930,7 +7938,7 @@ So much work for fail.
 ### 28680938  ###
 
 >  _`>>28680609`_
->  _But she could get her own baby Metroid ;_;_
+>  _But she could get her own baby Metroid ;\_;_
 
 But also Ma Brain.  
 And shooting giant lasers.  
